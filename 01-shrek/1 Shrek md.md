@@ -1,4474 +1,2023 @@
-Hi, I'm Aron Warner.
-I'm one of the producers on the film.
 
-Hi, I'm Vicky Jenson.
-I'm one of the directors on the film.
+Once upon a time there was a lovely princess.
 
-And I'm Andrew Adamson,
-the other director on the film.
+But she had an enchantment upon her of a fearful sort,
+which could only be broken by Love's first kiss.
 
-If you're watching this,
-you're probably one of those people
+She was locked away in a castle guarded by a terrible
+fire breathing dragon.
 
-that tikes people sitting behind you
-in the movies talking,
+Many brave knights had attempted to free her from
+this dreadful prison, but none prevailed.
 
-so it's your own fault
-that you have to listen to us
+She waited in the dragon's keep in the highest
+room of the tallest tower for her true love
 
-for the next hour and a half. We won't kick your chair, though.
+and true love's first kiss.
 
-Now, this is actually the opening
-of the movie,
+Like that's ever going to happen.
 
-which is usually the bit at the start,
+What a loony.
 
-and we actually were looking for
-a very classic kind of fairytale opening,
+Shrek
 
-and we actually ended up...
-We have these brainstorming sessions
+Beware
 
-where we all sit around a table
-and try and come up with ideas,
+Stay out
 
-and we came to this conclusion
-of wanting to open, like,
+I think he's in here.
 
-a traditional fairytale
-and having a storybook,
+All right. Lets get it!
 
-and I think it was Aron...
+Hold on. Do you know what that thing can do to you?
 
-I think all the ideas in this movie
-were Aron's.
+Yeah. He'll groan into your bones for his brains.
 
-Pretty much.
+Well actually that would be a giant.
 
-I love the graphics of that book.
-Julia Woolf was one of our artists
+Now Ogres, huh, they are much worse.
 
-in the department,
-and she was just wonderful.
+They'll make a soup from your freshly peeled skin.
 
-I love that book.
+They'll chew your livers,
+squeeze the jelly from your eyes.
 
-At one point we thought about having
-the DreamWorks logo
+Actually, it's quite good on toast.
 
-on the front of the outhouse,
+Back, back beast, back!
 
-'cause, actually,
-that half-moon just seems so perfect,
-
-but, well, we got voted down.
-
-I still like the idea.
-See, we're kind of close.
-
-And this is actually...
-
-This whole sequence was actually
-quite an effects-intensive sequence.
-
-It had some of, actually,
-the most difficult things
-
-right at the start of the movie.
-Mud, water.
-
-Yeah, I think in the additional material,
-
-you'll probably see some
-of the effects guys
-
-wearing a yellow sticker,
-pouring mud over each other,
-
-just to see how it looks
-when you take a shower in mud.
-
-Actually, all the difficult things, mud,
-water and nudity, were in this sequence.
-
-Yes. His bits and pieces
-are nicely hidden, <i>à la</i> Austin Powers.
-
-We also had a number
-of our effects artists
-
-jumping into a swimming pool,
-which was a lot of fun to watch.
-
-But they didn't fart, though. They didn't poot.
-
-I gotta say,
-when we screened this film in Cannes,
-
-in competition
-at the Cannes film festival,
-
-as soon as Shrek jumped in the water
-and farted,
-
-I know I put my head in my hands.
-I think we all did.
-
-Here we are sitting in tuxedoes
-and evening gowns,
-
-wearing borrowed jewels,
-
-and everyone's watching Shrek
-take a poot in the water.
-
-Did you ever give those back,
-by the way? The jewels?
-
-No one lent me any jewels. Yeah, me neither.
-
-I had a bodyguard watching me,
-
-so I had to get rid of the jewels
-at the end of the night.
-
-They were a little gaudy, anyway.
-
-Took the outfit into, kind of,
-an Eva Gabor direction.
-
-I love the eyeball scene.
-It was fun, actually. This was important,
-
-to establish Shrek not only as an ogre
-who didn't want anybody
-
-hanging around his swamp,
-
-and eating gross stuff,
-but you had to like him,
-
-so it was fun to watch him
-just have fun with his day.
-
-I think, actually, this was one
-
-of the more difficult sequences
-because of that.
-
-We wanted to say so much
-and just really do it in a music sequence
-
-where we weren't really stopping
-to explain things too much,
-
-but we wanted to set up the fact
-that Shrek is a fun-loving ogre
-
-when he's kind of living by himself.
-
-Remember, we used to kick out
-all kinds of characters from this swamp,
-
-because Shrek, he doesn't like anybody.
-
-He was scaring away
-Little Red Riding Hood
-
-and Mary and her little lamb.
-
-That's me. "All right, let's get it."
-That's Sim. He's our editor.
-
-We have voices popping up
-all over the place from our crew.
-
-Those ogre hunters were
-so hard to light, weren't they?
-
-Now, this from Mike Myers
-was actually a lot of improv.
-
-He was really, really great.
-
-We'd give him an idea
-of where we were heading,
-
-and we wanted Shrek to come up
-with all these different gross things,
-
-and we just gave him a list
-of 50 or so gross things
-
-that everybody had come up with,
-
-and he took those
-and then just added to that.
-
-Added 50 more. We had to edit it down.
-
-There were some hilarious things
-in there.
-
-Here's the very technically-difficult spit. Yes, we fought a lot for the spit.
-
-It's just the right amount of clumpiness.
-
-Andrew's right, though.
-This sequence was really difficult
-
-in terms of getting across who Shrek is.
-
-Does he like his life?
-Does he not like his life?
-
-Does he like people?
-Does he not like people?
-
-And I think we came up
-with a really good balance.
-
-Also, the generic characters.
-
-We had originally designed
-these characters
-
-to be more background elements.
-
-We hadn't had any sort of
-principal foreground humans
-
-other than Princess Fiona. Right.
-
-But when we reworked the sequence
-
-and wanted to have
-these ogre hunters in there,
-
-we had to really do a lot of work
-on the characters,
-
-to make them be able to stand up
-to that kind of inspection.
-
-This sequence is one of those examples
-
-of how many times
-we storyboarded ideas,
-
-trying to find the right way to go.
-
-Back in the days
-when Shrek wanted to be a knight,
-
-that was one of our original stories,
-he rescued Donkey from a witch.
-
-He found her caravan.
-
-We had all this backstory
-on how Donkey could talk.
-
-And the witch just came down
-to being this little old lady here.
-
-These fairytale creatures
-provided a lot of fun for us.
-
-When we sort of came up with them
-for the story,
-
-it was really a matter
-of just sitting down in a room,
-
-again, doing those
-brainstorming sessions
-
-we were talking about before,
-where a bunch of us would sit around,
-
-story artists, producers, writers,
-directors and so on,
-
-and just say, "Okay, everyone come up
-with three funny ideas"
-
-"for fairytale creatures,"
-
-and this is one of those sequences
-that had a lot of those ideas in it.
-
-The voice of the captain there
-is one of these guys
-
-that's just worked on everything,
-
-all kinds of animated cartoons,
-usually on TV.
-
-Jim Cummings. He was just great.
-
-Our story guys
-make a lot of cameo appearances.
-
-That was Cody as Pinocchio
-
-and Chris Miller as his dad,
-as Geppetto, selling Pinocchio.
-
-This was so funny.
-That actress was great.
-
-And those three pigs back there
-are Cody as well.
-
-They're all Cody, yeah. Yeah.
-
-Eddie was so amazing.
-
-This is the first time we hear him
-really speak in the movie,
-
-and he was so funny.
-The way he could just take any line
-
-and present it in a way
-that we never expected,
-
-but it was always funnier
-than we expected.
-
-He was incredible.
-
-You'd kind of go
-and you'd pitch him a sequence,
-
-you'd show him the pages and so on.
-He'd read it very quietly, just to himself,
-
-and then he'd just step in front
-of the microphone and just...
-
-Bam! He's just instantly this donkey.
-
-Turn it on completely. Just completely turn it on.
-
-Come out with stuff
-we'd never, ever imagined.
-
-Just take a single-beat joke
-and turn it into a three-beat joke.
-
-Sequences got longer
-because his jokes were so good.
-
-That's our <i>Star Wars</i> shot. Yeah.
-
-And that was our butt shot. You always have to have a butt shot.
-
-"Little donkey."
-What did Mike always say?
-
-"Wee Donkey." "Sweet little Donkey."
-
-"Aye." The accent.
-
-Yes. This is the Scottish ogre,
-of course.
-
-We did experiment with a number
-of different voices for Shrek.
-
-He was Scottish, then he was Canadian.
-
-Canadian... He went back to Scottish.
-
-Kind of a south country kind of guy
-for a while.
-
-The thing with Mike is, he's somebody
-who can really create a character,
-
-and I think this was
-particularly good for him
-
-'cause he got to create a character
-
-without having to go through
-five hours of makeup every day.
-
-But we went in with him
-and did what we usually do with actors,
-
-which is kind of record the character
-with their real voice.
-
-Our characters
-are already very caricatured,
-
-somewhat cartoonish, and you don't
-want the voices not to seem real,
-
-so that's kind of what we did with Mike.
-
-We just got him to use his real voice,
-but then when he saw it,
-
-he really sort of thought
-he could give it something more
-
-and wanted to go back into the studio,
-and he very generously gave
-
-a couple of weeks
-just to go into the studio
-
-and develop the character.
-
-And we had previously had a scene
-of him reading a letter to his father,
-
-and Mike had automatically done that
-in a Scottish voice,
-
-and we'd responded to it
-
-very well at the time. Yeah, that's right.
-
-So we kind of went back to that.
-
-We ended up with this idea
-that Shrek's parents were Scottish
-
-and they moved to Duloc,
-and he was brought up there,
-
-so he's kind of, like,
-second-generation Dulocian.
-
-Back in the days, again,
-when Shrek used to want to be a knight,
-
-there was a sequence
-where he was trying to tell his parents
-
-that he wanted to go out in the world
-and become a knight,
-
-and his father was saying,
-"Ogres can't be knights!"
-
-And at that point
-it was Andrew and me as the parents!
-
-Doing atrocious Scottish accents.
-
-And it was welcome,
-
-because it connected Mike
-to the character of Shrek
-
-and gave him the freedom to do
-what he wanted to do with the part,
-
-which I think really shows.
-
-This was one
-of the first sequences we animated.
-
-It was very early. It was actually
-the first really naturalistic sequence
-
-that we did, too,
-as far as the forest and the trees
-
-and all that kind of thing.
-
-We actually went backwards
-and forwards.
-
-At one point it looked too natural,
-and we wanted to keep it stylized,
-
-keep it like a fairytale storybook
-come to life.
-
-So the grass is more green
-than you'd expect.
-
-Didn't we change the order
-of this sequence a number of times?
-
-No, it actually was Ogres and Onions
-that followed this one,
-
-'cause this is where they meet,
-and then Ogres and Onions,
-
-where they're walking through
-the cornfield
-
-and Shrek is describing what ogres are
-
-and how similar they are to onions,
-used to follow this,
-
-but it felt like they became friends
-very quickly,
-
-and we picked that one up
-and moved that one till after Duloc.
-
-We also felt like
-we wanted to make sure
-
-we introduced Donkey
-as early as possible.
-
-We changed the order.
-
-We had a kind of repetition before
-where Shrek was...
-
-We were kind of saying who Shrek was,
-and then later on he ran into Donkey,
-
-and this scene kind of
-did the same thing,
-
-which really kind of explained
-who Shrek was
-
-and what his issues were
-about people rejecting him
-
-and him rejecting them first.
-
-It was actually a great moment
-that we had
-
-when we realized
-that we could put this scene here
-
-and really get across the point
-of who he was
-
-and introduce Donkey earlier. Yeah.
-
-I remember we all jumped out
-of the bathtub
-
-and ran through the streets naked
-yelling, "Eureka!"
-
-It was quite a moment
-for everybody involved, actually.
-
-I don't remember it
-that way exactly, but...
-
-Nothing but a shower cap.
-This sequence is fun.
-
-It has this line
-where Donkey runs around on his chair
-
-and talks about what they're gonna do
-in the morning,
-
-and it's one of those things
-that kids have picked up.
-
-Oh, my God. I've heard so many kids
-say that that's their favorite line.
-
-"In the morning
-I'm gonna make waffles."
-
-In Mexico, "I'm gonna make tamales."
-In France, "I'm gonna make crepes."
-
-Everybody loves that line.
-
-In England,
-it's probably bangers and mash.
-
-It's probably a good point to mention
-the amazing facial animation on <i>Shrek.</i>
-
-We were really lucky
-to get the whole <i>Antz</i> crew
-
-after their experience on that film
-and coming as far as they did,
-
-not only with the technology
-of the facial system,
-
-but the amazing artistry,
-and having to push it further
-
-now that we had, sort of,
-more human faces.
-
-Shrek, certainly, and of course, Fiona.
-
-It was just stunning how warm
-and how subtle the acting can be.
-
-I love that little bit of animation
-of Donkey.
-
-That's one of the cutest little pieces. "Sweet Donkey."
-
-But no, Vicky's right. They developed,
-really, a very advanced muscular system
-
-for the faces that really simulated
-anatomically-correct muscles,
-
-so that they could actually do
-very subtle expressions,
-
-and eyes and eyebrows.
-
-You'll notice when the creatures frown,
-when the characters frown,
-
-there's the little frown lines
-between the eyes.
-
-There's wrinkles around the eyes.
-
-When their mouths open, their lips
-actually stick together very slightly.
-
-It's a very advanced system.
-
-They're all actors.
-
-Yeah, exactly. And they're tremendous actors,
-
-and they did an incredible job
-
-of getting into the heart and soul
-of the characters themselves.
-
-This is a good point to mention
-the gorgeous music
-
-that Harry Gregson-Williams
-and John Powell did on this film.
-
-This theme of Shrek's, I just love it.
-
-Same with the opening of the film,
-which is actually Fiona's theme,
-
-'cause, as we're flipping the storybook,
-
-it feels like we're gonna tell the story
-of a very classic fairytale,
-
-and it's actually Fiona's theme
-we're hearing.
-
-But this one's just beautiful.
-It's sweet, but it's not sentimental.
-
-Actually, back there was one
-of the most redone and redone effects,
-
-which was Shrek pulling the earwax out.
+I warned you!
 
 Right.
 
-I wanted to have the level of grossness
-without going too far.
+This is the part, where you run away.
 
-We had a couple
-of really over-the-edge earwax shots.
+Yeah!
 
-Yes, we did.
+And stay out.
 
-Actually, Fiona's theme,
-mentioning that,
+Wanted. Fairytale creatures.
 
-was at one stage Shrek's theme.
+Right, this one is full. Take it away.
 
-Harry and John were working with it,
+Give me that.
 
-and they played it to us,
-and we were like, "You know what?"
+Your fine days are over. 25 pieces of silver for the witch.
 
-"It just seems a little too traditional
-for Shrek."
+Next. Come on.
 
-And so I think they were
-a little bit downhearted about that,
+Sit down there! And be quiet!
 
-'cause they really liked the theme,
-and then the next time we saw them,
+This cage is so small.
 
-they played it again and said,
-"Welcome to Fiona's theme!"
+You wouldn't turn me in.
+I'll never be stubborn again. I can change.
 
-Yeah, and it worked. It worked great. These were some classic voices.
+Please, give me another chance.
 
-The voice of Simon Smith,
+Oh, shut up!
 
-our layout supervisor,
-as one of the mice.
+Next.
 
-That was Chris Knights,
-the assistant editor.
+What do we got?
 
-And Mike Myers
-as one of the mice as well.
+This little wooden puppet.
 
-This scene really changed things for us
-when we figured out
+I'm not a puppet, I'm a real boy.
 
-that if we brought
-all the fairytale creatures into his land
+Five shillings for the possessed toy.
+Take it away.
 
-and got him out that way,
+No! Please, don't let them do it!
 
-that it would be much more fun
-and successful
+Next. What do you got?
 
-than the other methods we had.
+Well, I've got a talking donkey!
 
-At one point we had him burnt out
-of his house.
+Right.
 
-That was! That was Aron!
+Well that's good for ten schillings,
+if you can prove it.
 
-At one stage we used to have Shrek
-burnt out of his house.
+Oh, go ahead fella.
 
-Lord Farquaad was trying
-to beautify the kingdom,
+Well?
 
-and he sent a bunch of soldiers
-to burn Shrek out of his house,
+He's just a li..., just a little nervous.
 
-which was very dramatic,
-but not particularly funny.
+He's really quite a chatterbox.
 
-So when we developed
-these 2,000 cute fairytale characters
+You boneheaded donkey!
 
-to be Shrek's motivation for leaving,
+That's it. I have heard enough. Guards!
 
-it just opened up
-a huge amount of comic fodder,
+No, no, he talks, he does!
 
-we'd like to call it. I love that gag of the witches landing,
+I can talk. I love to talk.
 
-and the elves helping
-like airport attendants.
+I've talked to...
 
-So, back there you should notice
-that there were only two bears.
+Get her out of my sight! No, no, I swear!
 
-There was just Papa Bear
-and Baby Bear.
+Hey, I can fly. He can fly! -He can fly!
 
-You have to keep an eye out. Just remember that.
+He can talk! That's right, fool!
 
-We'll bring that up later on. Most people get it.
+Now I'm a flying, talking donkey!
 
-I'm telling you,
-even little kids have told me.
+You might have seen house fly,
+maybe even a superfly.
 
-This was a scene
-where I was saying to the directors,
+But I bet you ain't never seen a donkey fly!
 
-"This is really expensive.
-We can't do all these creatures."
+Seize him!
 
-And they were telling me,
-"We'll do it in the dark
+Get him! This way! Hurry!
 
-"and you can just see their eyes." Sure! I don't think that was us that said that.
+You there. Ogre. I.
 
-I don't know who it was,
-but I'm not that naive, okay?
+By the order of lord Farquaad.
 
-It was probably the most expensive,
-in terms of render time,
+I am authorized to place you
+both under arrest.
 
-with all of these characters, all the fire,
-all the fur, the leaves, the moonlight.
+And transport you to designated
+resettlement facility.
 
-Something like nine hours
-to render one frame.
+Oh really?
 
-People may be asking,
-"Why are the pigs German?"
+You and what army?
 
-And we'd have to answer,
-"We have no idea."
+Can I say something to you?
 
-We have no idea. It was funnier.
+Listen, you were really, really something,
+back there. Incredible.
 
-Except "huffed and puffed"
-just sounded funnier.
+Are you talking to...
 
-Than "huffed and puffed."
+...me?
 
-Eddie was great here. Yeah.
+Yes, I was talking to you.
 
-Here's a loop line.
+Can I just tell you that you were
+really great back there with those guards.
 
-The loop line in there
-always stands out to me.
+They thought that was all over there.
 
-Right here.
-"Attention, all fairytale creatures."
+And then you showed up and BAM. There was tripping
+on over themselves like babes in the woods.
 
-That was recorded in a car, wasn't it?
-That one "fairytale creatures"?
+That really made me feel good to see that.
 
-I think we went back
-and picked it up again.
+Oh, that's great. Really.
 
-For a while there... The car didn't work.
+Man, it's good to be free.
 
-That's right. Jeffrey went to New York
-with a little DAT recorder
+Now, why don't you go celebrate your freedom
+with your own friends?
 
-and recorded it
-in the back of a car with Mike,
+But I...
 
-but unfortunately the driver had forgotten
-to turn off the radio.
+I don't have any friends.
 
-The radio was on, so we had to redo it.
+And I'm not going out there by myself.
 
-It still stands out to me.
-I know it blends, but I still hear it.
+Hey wait a minute. I have a great idea...
 
-And Jeffrey's
-gonna keep his day job, I think.
+I'll stick with you.
 
-I love the flower cape. I don't know.
+You and me in green fighting machine.
 
-It's just one
-of those classic fairytale gags
+Together we'll scare the spin if anybody crosses us.
 
-that, you know, the hero gets draped
-by flowers from the birds,
+Oh, a, that was really scary.
 
-but Shrek doesn't like it.
+Maybe you don't mine me saying. If that don't work,
+your breath will certainly do the job done, 'cause...
 
-At one point we had a lot more
-of Donkey singing in the movie,
+you definitively need some tic-tac or something,
 
-singing song after song after song,
+'cause your breath stinks!
 
-and I guess when even we found
-it annoying, we cut back a little bit.
+Man you've ???  my note!
 
-It was hard for Eddie to sing this badly.
-We had to specifically say,
+Just like the time...
 
-"Can you sing this worse,
-please, Eddie?"
+...and then I ate some rotten berries.
 
-This intro to Farquaad was so much fun.
+Man I had some strong gases leaking 
+out of my but that day.
 
-You know, design-wise, we always
-kept Farquaad's castle very angular.
+Why are you following me?
 
-See how the glass has got angles to it?
-We didn't want anything soft or round,
+I'll tell you why.
 
-'cause that was sort of Shrek's thing,
-everything organic.
+'Cause I'm all alone,
 
-This was fun. In storyboard,
+there is no one here, beside me.
 
-it was pitched
-that Farquaad was introduced
+My problems have all gone.
+There's no one to derive me.
 
-kind of like Darth Vader
-stomping through the Death Star.
+But you got to have free ... Stop singing!
 
-I've gotta say, when Conrad
-first pitched this sequence,
+Well, it's no wonder, you don't have any friends.
 
-I don't ever remember laughing so hard.
+Wow! Only a true friend would be that truly honest.
 
-I saw tears coming out of Aron's eyes.
+Listen! Little donkey.
 
-Conrad Vernon,
-that's the storyboard artist,
+Take a look at me! What am I?
 
-and the voice of gingerbread. And the voice of gingerbread man.
+A...
 
-You can buy the toy
-and hear Conrad saying,
+...really tall?
 
-"Not my buttons!" Buttons, not buns.
+No! I'm an Ogre.
+You know, grab your torch and pitchforks.
 
-We did discover...
-This was the first sequence
+Doesn't that bother you?
 
-we animated with John Lithgow, right? Yes.
+Nope.
 
-We couldn't get his big voice to
-feel right coming out of that little guy,
+Really? Really really.
 
-and we had to go back a few times
-to figure out how to do it,
+Oh?
 
-make sure that his breaths
-were really big,
+Man, I like you. What's your name?
 
-and that he moved
-to support that big voice.
+A..., Shrek.
 
-Yeah, threw the head around. He could launch, in the body,
+Shrek?!
 
-to launch that huge voice
-out of that little frame.
+But do you know, what I like about you, Shrek?
 
-The sound guys were always
-grabbing the knobs
+You've got that kind of:
+"I don't care what nobody thinks of me" thing.
 
-when John would go into the speech,
+I like that, I respect that, Shrek. You're all right.
 
-'cause his voice could go
-from a really insidious whisper
+Uh, look at that.
 
-to this booming, Shakespearean,
-addressing voice. It was incredible.
+Who would wanna live in
+a place like that?
 
-I love the facial animation
-in this sequence, too.
+That would be my home.
 
-You really get to see the wrinkles in
-the forehead and how well that works,
+Oh, it is lovely. Just beautiful.
+You know you're quite a decorator.
 
-and then just the expressions that
-the animators have used are just great.
+It's amazing what you did with such a modest budget.
 
-I mean, Farquaad,
+I like that boulder. That is a nice boulder.
 
-they actually have it to the point
-where he looks psychotic.
+I guess, you don't entertain much, do you?
 
-I mean, he's got this sort of gleam
-in his eye that doesn't feel...
+I like my privacy.
 
-It feels like he's disconnected
-with what he's thinking about.
+You know I do to. 
+That's another thing, we have in common.
 
-One of the things
-we really found which...
+Like I hate it when you got somebody in your face.
+You try to give them a hint and they won't leave.
 
-Duh. It's one of the most
-obvious things, probably,
+And then there's that big occurred silence, 
+you know?
 
-but with the eyes being
-the window to the soul kind of thing,
+Can I stay with you? What?
 
-and the fact that you really look
-at people's eyes when they're talking,
+Can I stay with you, please.
 
-that's really where most
-of the important animation happens,
+Of course! Really?
 
-and it's little eye darts, small changes
-in the shape of the eyelids.
+No. Please! I don't want to go back there.
 
-If you look one way,
-if you look away for a moment,
+You don't how is like to be concerned like a freak.
 
-everything really changes
-very subtly in the eyes,
+Well..., maybe you do. 
+But that's why we have to stick together!
 
-and that's kind of what the difference is
-between a character looking alive or not.
+You got to let me stay! Please! Please!
 
-We'd quite often be saying,
-"Add a blink here,"
+OK, OK.
 
-or, "Do a little glance here,"
-or, "Look from one eye to the other."
+But one night only. Huh, thank you!
 
-It just makes all the difference. This was one of those sequences
+A, what are you do... No!
 
-that really sets the type of humor
-that we did.
+This is going to be fun.
+We can stay up late, swap the manly stories.
 
-Sometimes we'd do
-these comedy passes.
+And in the morning...
 
-Part of the way through production
+I'm making waffles.
 
-we'd get other directors together
-from DreamWorks and sit around
+Where do I sleep?
 
-and look at the movie
-kind of like we are now
+Outside!
 
-and just say, "Okay, I've got a joke!"
+Oh, a, I guess that's cool. You know,
+I don't know you and you don't know me...
 
-And everyone adds ideas
-as they think of them, and that's where
+... so I guess, outside is best for me.
 
-<i>The Dating Game</i> parody came out of. What was this before?
+Here I go.
 
-It was just kind of a slideshow
+Good night.
 
-where he was presenting
-a bunch of different women.
+I do like that half door. 
+I'm a donkey all alone outside.
 
-It didn't have the whole
-<i>Dating Game</i> feel to it.
+Sit by myself outside, I guess.
 
-And it was a natural,
-with the Magic Mirror becoming a TV.
+I'm all alone, there's no one here beside me.
 
-And once again,
-we actually have the voice
+I thought, I told you to stay outside. I am outside.
 
-of a storyboard artist, Chris Miller,
-being the voice of the Magic Mirror here.
+Well James. This is far from the farm,
+but what choice do we have?
 
-You know, we make the whole movie
-in storyboard a couple of times.
+It's not...
 
-Well, many, many times.
+What a lovely bed. Got you!
 
-More than a couple of times,
-in this case.
+I found some cheese. Awful stuff.
 
-And we record with ourselves
-and the story people.
+Is that you Gordon? How did you know?
 
-We do a lot of scratch dialogue,
+Enough! What are you doing in my house?
 
-and in some cases, you get so attached
-to the sound of the scratch dialogue.
+Oh, no, no, no... Death prods off the table!
 
-It's so funny. You can't do it better.
+Where would we supposed to put her.
+The bed's taken.
 
-We did record the Mirror
-with a few other actors,
+What?
 
-and we just kept coming back to Chris.
-He's so funny.
+I live in a swamp. I've put up signs.
+I'm a terrifying Ogre!
 
-And our Thelonious, the executioner,
-is Chris Knights,
+What do I have to do, to get a little privacy?
 
-who was the assistant editor. And also one of the mice.
+Oh, no! No, no!
 
-And one of the mice.
-And funny that we kept it.
+What are you doing in my swamp?
 
-It actually... We really made this movie
-in Aron's garage.
+All right, get out of here. All of you.
+Move it! Come on, let's go.
 
-It was just a bunch of people
-who got together one afternoon
+And hurry up, hurry up.
 
-and did the voices
-and made the movie in the garage.
+No, no, not there. Not there!
 
-I don't have a garage.
+Hey don't look at me. I didn't invite them.
 
-I love <i>The Piña Colada Song</i>
-coming in here. It just slays me.
+Oh gosh, no one invited us. What?
 
-The first time it was pitched and Conrad
-started singing that song, I just died.
+We were forced to come here. By who?
 
-I don't know if it was
-<i>The Piña Colada Song</i>
+Lord Farquaad. He ??? 
 
-or Conrad singing
-that was particularly funny.
+All right.
 
-A combination of the two.
+Who knows where this Farquaad guy is? 
 
-There's a little bit of animation
-on Farquaad coming up here
+Oh I do. I know where he is.
 
-where he lifts his eyebrow
-and grits his teeth. It's so cool.
+Does anyone else know where to find him? 
 
-Raman was amazing,
-our supervising animator.
+Anyone at all? -Me. -Anyone?
 
-Raman Hui and his team
-did an incredible job,
+Oh pick me, I know! Me, me.
 
-and that was one of the first little...
-Of those subtle expressions,
+Ok, fine.
 
-I think, with Farquaad, that he animated.
-It's just incredible.
+Attention all fairy tale things!
 
-This sequence was another one that
-went through incredible permutations,
+Do not get comfortable.
+Your welcome is officially warned up.
 
-the introduction of Duloc
-and Farquaad's sterile environment.
+In fact. I'm gonna see this guy Farquaad right now
+and get all off my land and back where you came from.
 
-What he was doing to Duloc
+You. You're coming with me.
 
-he was planning to do
-to the rest of the kingdom.
+All right. That's what I like to hear, man.
 
-We looked at a lot of different things
-for Duloc.
+Shrek and Donkey, two stubborn friends off on a
+world and big city adventure. I love it.
 
-They went up to Hearst Castle.
+I'm on road again. Sing with me Shrek!
+I'm on road again...
 
-We looked at a lot of, kind of,
-Albert Speer architecture.
+What did I say about singing?
 
-We ended up coming up with this thing
-that was basically a fascist theme park.
+Can I whistle? No.
 
-Listen carefully. That's Andrew.
+Well, can I hummer? All right.
 
-See? I can do it on call. That's very good. Okay, do it again.
+That's enough. He's ready to talk.
 
-That was actually what I was saying
-through most of the movie.
+Run, run, run as fast as you can,
+you can't catch me.
 
-Every time Jeffrey asked us
-to do anything, it was just like...
+I'm the gingerbread man.
 
-This sequence was the final version
-that combined all the best stuff.
+You monster.
 
-It was boarded by Eric Darnell,
-one of the animators...
+I'm not a monster here. You are.
 
-One of the directors, sorry, from <i>Antz,</i>
-along with Catherine Yuh.
+You and the rest of that fairytale trash,
+poisoning my perfect world.
 
-He came up with the gag of...
+Now tell me! Where are the others? Eat me.
 
-What are those... The "Welcome to Duloc."
+I've tried to be fair to you, creatures.
+Now my patience has reached its end!
 
-Yeah, the "Welcome to Duloc,"
-and the little dolls singing.
+Tell me! Or I'll... No, no, not the buttons.
 
-When we were looking
-for a manufactured reality,
+Not gumdrop buttons.
 
-as I said, we went to Hearst Castle.
-We actually came to Universal City.
+All right! Who's hiding them?
 
-We also looked into Las Vegas,
+Ok, I'll tell you.
 
-but that was just an excuse
-to try and get to Las Vegas.
+Do you know the muffin-man? The muffin-man?
 
-It would never appeal to families.
+The muffin-man. Yes, I know the muffin-man.
 
-I love this doll sequence. It's so fun.
-It is a spoof of...
+Who lives on Proully lane?
 
-We could sing it.
+Well, she's married to the muffin-man. The muffin-man!
 
-<i>Duloc's such a happy place</i>
+The muffin-man! She's married to the muffin-man.
 
-I'll leave Vicky hanging out there
-singing by herself!
+My lord! We found it.
 
-It was fun. It was great.
+Well then, what are you waiting for?
+Bring it in.
 
-The little dolls are so cute.
-They're designed by Julia Woolf, again.
+Magic mirror.
 
-She was the best at coming up
-with our little Duloc graphics.
+Don't tell him anything!
 
-The signs hanging over
-all the different shops.
+Evening.
 
-The art department
-just did amazing research
+Mirror, mirror on the wall.
+Is this not the most perfect kingdom of them all?
 
-and beautiful work all through the movie,
-but in Duloc, we had a lot of fun.
+Well, technically, you're not a king.
 
-I think painting the walls
-to that perfect, sterile white,
+A..., felonious.
 
-and painting the flowers
-to the pink color.
+You were saying. What I mean is a...
 
-You can see examples of it
-in the background,
+...you're not a king, yet.
 
-I think a little earlier than these shots,
-but part of Duloc is still being renovated.
+But you can become one.
+All you have to do, is marry a princess.
 
-James Hegedus,
-our production designer,
+Go on.
 
-has had a lot of experience
-in both visual effects and live action,
+So, just sit back and relax my lord,
 
-and he had this wonderful sense of,
-sort of, fantasy storybook
+because it's time for you
+to meet today's eligible bachelorettes.
 
-that he managed to sort of incorporate
-into this whole 3-D world,
+And here they are.
 
-and actually was really, really good
-with all the lighting.
+Bachelorette number one is a mentally abused
+shading from a kingdom far, far away.
 
-We had a very stylized lighting scheme
-that we wanted to use,
+She likes sushi and hottubbing anytime.
 
-kind of almost
-an Impressionistic palette.
+Her hobbies include cooking and 
+cleaning for two evil sisters.
 
-We have very warm light
-and cool shadows,
+Please welcome... Cinderella.
 
-and it's very enhanced, very heightened,
+Bachelorette number two is a
+ kemp wearing girl from a land of fantasy.
 
-and it was very difficult
-for the lighters to actually achieve.
+Although she lives with seven other man,
+she is not easy.
 
-They had to work very hard
-to do something
+Just kiss hers dead frozen lips
+and find out what a live wife she is.
 
-that was behaving in a photo-real way,
-with true lighting and shadow,
+Come on. Give it up for... Show-white.
 
-but then also was very enhanced
-and stylized in its colorization,
+And last but certainly not least.
 
-and I know it was a very difficult thing
-for them all the way through.
+Bachelorette number three is a 
+fire-breathing ????,
 
-There's been all kinds of great ad-libs
-from Mike throughout here.
+dragon guarded castle, surrounded by a hot 
+boiling lava. But don't let that cool you off.
 
-When they're coming
-through the tunnel, when he says,
+She's a loaded pistol who likes
+Pina Coladas and getting cut in the rain.
 
-"All right, you're going the right way
-for a smacked bottom,"
+Yours for the rescuing, Princess Fiona.
 
-it was something he recorded
-in-between takes.
+So will it be, bachelorette number one?
+Bachelorette number two?
 
-I think he was actually
-reprimanding Andrew.
+Or bachelorette number three?
 
-I know. We thought it was really funny,
-and we found a place to slip it in.
+Two... -Three! -Two!
 
-This was one of those sequences, too.
-We've always had a tournament,
+One. No, no, no.
 
-and it was a little more traditional
-with Shrek taking out the...
+Three. Pick number three my lord.
 
-Jousting and horseback-riding
-and the whole bit.
+Ok, ok. Number three.
 
-One of our animators came up
-with the idea to make it more like
+Lord Farquaad. You've chosen...
+princess Fiona.
 
-a World Federation Wrestling
-kind of thing,
+She's nice. Fiona. She's perfect.
 
-and we just all collectively
-slapped our foreheads with a "duh!"
+All I have to do is just find someone...
 
-We were a little ways down the line
-with this sequence
+But I probably should mention little thing 
+that happens at night...
 
-when that idea came around,
-and we just said,
+'ll do it! Yes, but after sunset...
 
-"Okay, it's totally worth going back
-and making it work that way."
+Silence!
 
-That little bit of hockey
-was in tribute to Mike Myers.
+I will make this princess Fiona my queen.
 
-Yes.
+And Duloc will finally have the perfect king!
 
-And the mud and water here,
-that was actually,
+Captain! Assemble your finest man.
 
-for its brief moment onscreen,
+We're going to have a tournament!
 
-probably one of the more scientifically
-difficult effects we had ever done.
+That's it, that's, right there, that's Duloc.
 
-Absolutely.
+I've told you I'll find it.
 
-PDI had developed a water system
-for use on <i>Antz,</i> so of course we said,
+So. That must be lord Farquaad's castle.
 
-"Well, now we want to use beer,
-mud and everything mixed together,"
+Aha, that's the place.
 
-so they had to extend it even further.
+Do you think maybe he's compensating for something.
 
-Those crowds are fun.
-They're like mix-and-match people.
+Hey, hey wait up Shrek!
 
-Mr. Potato Head people.
+Hey, you! No, no!
 
-You can pick features and hair
-and clothing color,
+Wait a second.
 
-and the guys mixed them all together
-to come up with these crowds.
+Look, I'm not gonna eat you. I just...
 
-But it's so funny,
-even in computer animation,
+It's quiet.
 
-no one likes to do crowds.
-They hate it in traditional animation.
+Too quiet.
 
-It's just too much to draw,
-too much to control,
+Where is everybody?
 
-and it doesn't change in computer.
-It's just as painstaking.
+Hey look at this.
 
-I hate that one woman in pink. Yeah, I don't like her either.
+Wow!
 
-With her big jaw? She was also very difficult to work with.
+Let's do that again. No. no.
 
-Yes, she was terrible. She wouldn't come out of her trailer.
+All right. 
+You're going the right way for smack bottom.
 
-She always did that same movement
-of just holding her arms in the air
+Sorry about that. 
 
-and just jerking her body back and forth.
-I didn't like that.
+That champion should have the honor, no, no...
 
-I love this, the <i>Gladiator</i> shot.
+...the privilege to go forth and rescue the lovely 
+princess Fiona from the fireing keep of the dragon.
 
-That's one benefit
-of working on a movie for so long,
+If for any reason the winner is unsuccessful,
+the first runner up will take his place.
 
-is that you get to keep adding gags
-and little tributes.
+And so on, and so forth.
 
-Referring to all the films
-that have come out
+Some of you may die,
+but it's a sacrifice I'm willing to make.
 
-in the three years
-you were working on this one.
+Applause.
 
-That was fun, too.
-Those are all crossbows,
+Let the tournament begin.
 
-but we needed to have a sound cue
+What is that?
 
-that made you realize
-that Shrek was in danger,
+Ugh, it's hideous.
 
-so it was the sound
-of cocking pistols and rifles, but...
+Oh, that's not very nice.
 
-By the way, there are no arrows
-in those crossbows.
+It's just a donkey.
 
-No, there are, they added them! Did they get added?
+Indeed.
 
-Yes, they did them partway through.
-I didn't notice that
+Knights! New plan. The one, who kills the Ogre,
+will be named champion.
 
-until I was actually checking a frame
-of film and arrows showed up, so...
+How about him.
 
-We have these things called CBBs,
-which is "Could Be Better..."
+Oh, hey. Now, come on.
 
-Which in my book means,
-"Never will get done."
+Can't we just settle this over a pint?
 
-Which means, "Done. Move on." Yeah.
+No?
 
-But we had a CBB on the fact
+All right then.
 
-that somebody hadn't put any arrows
-in the crossbows,
+Come on.
 
-and we just thought,
-"Well, no one will notice."
+Hey Shrek! Let me, let me!
 
-And then somebody actually went back
-and put the arrows in.
+The chair! Give him the chair!
 
-That's awesome.
+Thank you. Thank you, very much.
 
-This deal here
-between Farquaad and Shrek.
+I'm here until Thursday. Try the wheel!
 
-There used to be an entire sequence
-about this, boarded hundreds of times.
+Shall I give the order sir?
 
-The two of them walking through
-a garden making the deal,
+No. I have a better idea.
 
-because actually,
-when you think about it,
+People of Duloc. I give you our champion!
 
-having Farquaad as fastidious
-and small as he is
+What?
 
-and Shrek as huge
-and slovenly as he is,
+Congratulation, Ogre.
 
-putting the two of them together
+You've won the honor of embarking
+on a great and noble quest.
 
-just seemed like
-it would be ripe for comedy.
+Quest? I'm already on a quest.
 
-There was
-a whole dinner sequence, and...
+A quest to get my swamp back!
 
-And a fantastic performance
-from John Lithgow.
+Your swamp? Yeah, my swamp!
 
-With the deal.
-We used to have this one scene...
+Where you dumped those fairytale creatures.
 
-One of the many versions of the deal
-was when they came in
+Indeed.
 
-and Farquaad showed Shrek a model
-of the world-to-be,
+All right Ogre, I'll make you a deal.
 
-his vision of Duloc, and he had
-this wonderful rant, which was just
+Go on this quest for me and
+I'll give you your swamp back.
 
-an incredible performance from John. "It will be a Duloc world after all!"
+Exactly the way it was?
 
-This is the very first sequence
-we animated,
+Down to the last slime covered toast tool.
 
-the first one that went into production,
-and it got rerecorded a couple of times.
+And the squatters? As good as gone.
 
-And actually reanimated
-a number of times.
+What kind of quest?
 
-We found that after
-we'd gone a bit further
+Ok, let me get this straight!
 
-and the animators really got
-a hang of the animation system
+We gonna go find the dragon and rescue a princess 
+just so Farquaad will give you back the swamp,
 
-and Shrek and his face
-and how it worked,
+which you only don't have, 'cause he filled it 
+with full of freaks on the first place.
 
-when we came back
-and watched the sequence,
+Is that about right? You know what?
 
-it looked like Shrek had just been in
-for dental work.
+Maybe there is a good reason, donkeys shouldn't talk.
 
-It had that kind of
-numb-lower-lip kind of feel.
+I don't get it Shrek. 
+Why didn't you just pull some old Ogre stuff on them?
 
-And in truth it was good.
-The animation was still good,
+You know, ??? . Grab his bones to make you brave.
+You know the whole Ogre trick.
 
-but it wasn't up
-to how much everyone had grown
+Oh, you know what. Maybe I could have decapitated 
+entire village and put their heads on plate.
 
-over the course of the film.
-We did that with Fiona also.
+Got a knife, cut open their spleens 
+and drink their fluids.
 
-Yeah.
+Does that sound good to you?
 
-You know, you learn a lot
-about the characters along the way.
+A, no, not really, no.
 
-What can they do, what can't they do,
-what looks good, what doesn't,
+For your information,
+there is a lot more to Ogres than people think.
 
-what sells an emotion,
-and you come back and fix it,
+Example. Example?
 
-which is the great thing
-about this process.
+OK, A-a-m, Ogres are like onions.
 
-Donkey is so fun in this sequence.
+They stink? Yes, no.
 
-This is the one
-where Andrew was talking about...
+O, they make you cry. No.
 
-He took one line
-and turned it into a three-beat joke.
+Oh, you leave them out on the sun and 
+they get all brown and start ??? little wild hairs?
 
-This bit at the end
-about parfaits and tissues.
+No! Layers! Onions have layers.
 
-Great acting from Raman here again.
+Ogres have layers. Onions have layers.
 
-The other thing I love
-about this sequence
+You get it? We both have layers.
 
-is the willingness
-that the effects artists had
+O, you both have layers.
 
-to just go in and go that extra mile
-and put in the little details
+You know not everybody likes onions.
 
-that you would often think
-you don't need,
+Cake! Everybody loves cakes. Cakes have layers.
 
-but just help cue you into a reality.
-They help make this world believable.
+I don't care what everyone likes.
 
-Even though it's not our world,
-it's as believable as our world,
+Ogres are not like cakes.
 
-and it's little things
+You know what else everyone likes? Paffe.
 
-like noticing the petals on the flowers
-blowing in the wind.
+Have you ever met a person and you say: 
+"Hey, let's get some paffe" and
 
-The flies buzzing. Which I've gotta say,
+they say I don't like paffe. Paffe is delicious.
 
-to people who don't know a lot
-about this process,
+No! You tensed, irritating, miniature peace of barden.
 
-it's one of the things that really
-stands out for them in this film,
+Ogres are like onions. End of story.
 
-is this sequence and the sunflowers. Right.
+Bye, bye. See you lather.
 
-I've had a number of people
-say that to me.
+Paffe is maybe the most delicious thing 
+on the whole damn planet.
 
-Because...
-You know, we didn't even think about it,
+You know I think I've preferred your humming.
 
-'cause we did it way back when, but... Yeah.
+Do you have a tissue or something, 
+ 'cause I'm making a mess.
 
-And just even having wind blowing
-in the trees and things like that.
+Just the word paffe has made me start slimying
 
-It's one of those things you don't notice,
-but you expect it,
+Why, Shrek, did you do that?
 
-and if it's not there,
-then you notice its absence,
+Man you got to warn somebody 
+before you just crack one off.
 
-and that's when you lose
-the suspension of disbelief,
+My mouth was opened and everything.
 
-and it was very important
-to maintain that.
+Believe me donkey, if it was me, you'd be dead.
 
-Yeah, little puffs of dust
-when they're walking along.
+It's brimstone. We must be getting close.
 
-This was funny.
+Yeah, right, brimstone.
 
-Because of the issue with the princess
-becoming an ogre at night,
+Don't be talking ??? brimstone. 
+I know what I smell and ??? no brimstone.
 
-we had to make sure this sequence
-felt like it was daytime,
+And they don't come of stone neither.
 
-so we had to go back in and add
-daylight poking through those clouds,
+Sure it's big enough, but look at the location.
 
-'cause we had this big, ominous
-circle of clouds over the volcano,
+Oh, Shrek, remember when you said 
+that Ogres have layers?
 
-but when it was real dense,
-it felt like we were already in nighttime,
+Oh, yeah.
 
-so it defeated, or at least diluted,
-the issue of the princess.
+Well, I have a confession to make. 
+Donkeys don't have layers.
 
-So hopefully you're not silly enough
-to actually watch it the first time
+We wear ??? sleeves.
 
-with the director commentary,
-or else we just ruined the story for you.
+Wait a second. Donkeys don't have sleeves.
 
-And if you did, then you deserve it.
+You know what I mean. Oh, you can't tell me you're afraid of highs.
 
-Then stop now,
-go back and watch the movie properly.
+No, I'm just a little uncomfortable of being 
+on a rickety bridge over boiling lake of lava!
 
-This is the second scene we animated,
-and it was, as you'll see in a second,
+Come on donkey, I'm right here beside you. Ok?
 
-so hard that pretty much everyone
-wanted to quit after it,
+For emotional support.
 
-but we convinced them to stay. I know I wanted to.
+We'll just hackle this thing together
+one little baby step after time.
 
-Wait. There's a joke coming up here
-we tried so many things for.
+Really? Really really.
 
-We ended up coming back
-to the original.
+Ok. That makes me feel so much better.
 
-No one could come up
-with a better joke.
+Just keep moving and don't look down.
 
-"But look at the location!"
+Don't look down, don't look down.
 
-It kills me! Slays me every time. Sorry.
+Shrek! I'm looking down!
 
-Lava. There used to be
-a parking lot of skeletons
+I can't do this. Just let me off right now, please.
 
-from previous knights' horses.
+But you're already half way. Yeah, but I know that half is safe.
 
-They'd parked them out front,
-gone in to rescue the princess,
+Ok, fine. I don't have time for this. You go back.
 
-never came back,
-and the horses just died there.
+Shrek, no, wait.
 
-We thought it was funny at the time,
-but ultimately, it just didn't look right.
+Don't do that!
 
-At one point, this sequence
-was in another place in the movie, too,
+Oh, I'm sorry. Do what?
 
-and their relationship
-wasn't as advanced,
+Oh. This? Yes, that!
 
-and actually, it felt like Shrek
-was much too mean to Donkey,
+Yes, yes. Do it. OK.
 
-and we came back
-and kind of moved it around.
+No, Shrek! I'm doing it.
 
-We managed
-to find a performance in there
+I'm gonna die. I'm gonna die. Shrek, I'm gonna die.
 
-that supported him not being so mean.
-Because it's not about him being mean,
+That will do Donkey, that will do.
 
-it's about him
-using Donkey's own insecurities
+Cool.
 
-to get him to cross the bridge.
+So where is this fire breathing pain in the neck anyway?
 
-Which is actually kind of
-how we made the movie.
+Inside. Waiting for us to rescue her.
 
-We just used our own insecurities
-to try and get us through it.
+I was talking about the dragon Shrek.
 
-For a while, it felt like this sequence
-was just always so overproduced.
+Are you afraid? No, but shhhhh.
 
-Like, what's going on?
-They're just crossing a bridge.
+Oh, good. Me neither.
 
-But in a way, it really develops
-their character, their relationship.
+Because there's nothing wrong with being afraid. 
+Here's a..., something responsible of the situation.
 
-The effects artists did a wonderful job
-with this lava, too.
+Not to mention dangerous situation. 
+And there's dragon that breathes fire.
 
-Again, anything that you see
-in the movie that's fluid or very organic
+I'm sure he's meaner than a cow or anything, 
+but they're scare. You know what I mean.
 
-is actually some
-of the most difficult stuff to do,
+I'm sure he's heavier than a cow...
 
-and involves a lot
-of very heavy computation,
+Donkey. Two things. Ok?
 
-a lot of very complex formulas
+Shut, up.
 
-to figure out
-how these things work and move,
+Now go over there and see if you can find any stairs.
 
-and they did an amazing job
-with all of those things.
+Stairs? I thought we were looking for the princess.
 
-This sequence is also a good example
-of the idea of using cameras
+The princess will be up the stairs in the 
+highest room in the tallest tower.
 
-in a more real way in this movie.
-Obviously, in computer animation,
+What makes you think she'll be there?
 
-you can put that camera
-anywhere you want,
+I read it in a book once.
 
-move it perfectly in line
-with the characters
+Cool. You handle the dragon, I'll handle the stairs.
 
-as they're walking along,
-but in this case,
+Oh, I'll find those stairs. I'll ???. That's right.
 
-we really wanted, kind of,
-a handheld feel,
+Those stairs won't know which way they go.
 
-and have the cameras behave in a way
-that the audience is used to seeing
+The drafting stairs, ???
 
-in traditional live-action films,
-and that sequence was really effective,
+Don't mess with me. I'm the stair master. 
+I'm master of the stairs.
 
-with the camera swinging out
-over the bridge.
+I wish I had a stair right here right here now, 
+I'd step all over it.
 
-You really feel like
-you're on the bridge with them.
+Well, at least we know where the princess is.
 
-This was one of the first sequences
+But where is the... Dragon!
 
-where we actually really allowed black
-to be a major part of the palette.
+Donkey, look out!
 
-We kind of made this commitment,
-as I said before,
+Got you.
 
-to a very heightened
-kind of lighting system,
+Oh, what large teeth you have.
 
-and had limited our shadows,
-or keeping our shadows full of light.
+I mean, white sparkling teeth.
 
-And because we wanted
-a very different mood inside the castle,
+You probably hear this all the time from your food, but
 
-we allowed this one now to have
-sort of black in it for the first time.
+you must bleach yourself, 
+because that is one dashing smile you got there.
 
-It was one of the nice things about
-working in animation, working in CG,
+And do I detect the hint of minty freshness?
 
-is you design every element
-that's in there,
+And you know what else?
 
-which gives you the freedom
+You're a girl dragon. Oh, sure. 
+I mean 'course you're a girl dragon,
 
-to completely play
-with the environments
+'cause you're just ricking the feminine beauty out.
 
-to create a mood,
+What's the matter with you? 
+Do you have something in your eye?
 
-and this is one where we wanted
-to create a very different mood
+Man, I'd really love to stay, but you know 
+I'm a asthmatic and
 
-and just limit the palette
-to black, red and blue.
+I don't know if we would worked out. 
+You'd be blowing smoke and stuff.
 
-That's not dissimilar
-to what a cinematographer
+Shrek!
 
-and a production designer
-would do together in a live-action film.
+No, Shrek! Shrek!
 
-Right. As the sequence goes on,
-once the Dragon comes in,
+Wake up! What?
 
-we actually wanted to get more
-and more stylized with the lighting.
+Are you princess Fiona?
 
-We referenced things like <i>Cinderella,</i>
+I am.
 
-where the sisters are pulling her dress
-and ripping her dress,
+Awaiting a knight so bold as to rescue me.
 
-and she can't go to the ball,
+Oh, that's nice. Now let's go.
 
-and the background started to drop out
-to just red.
+But wait, sir knight.
 
-There's also an Orson Welles film,
-<i>Touch of Evil,</i>
+This be our first meeting.
 
-where there was a murder scene where,
-as the lights flashed on and off,
+Should not be wonderful, romantic moment?
 
-the sequence became
-more and more simplified,
+Yeah. Sorry lady there's no time.
 
-and in our case,
-once the Dragon shows up,
+Hey, what are you doing? 
+You know, you should sweep me out of my feet.
 
-the environment does fill up with smoke,
-but it goes more and more red,
+Out through the window and down 
+the rope by to your valued steed.
 
-and the details of the background
-start to drop out.
+You've had a lot of time to plan this, haven't you?
 
-The fire.
-Andrew, you gotta talk about the fire.
+Uh-um.
 
-Again, it's organic in its nature,
+But we have to sing through this moment.
 
-and because of that
-was very difficult to achieve.
+You can residing of a poem to me.
 
-Very often, computer-generated fire
-tends to have either a very soft quality
+A ballad, a sonnet, a libretti. Or something.
 
-or a very hard-edged quality,
+I don't think so.
 
-and we had
-to really come up with something
+Well, can I at least know a name of my champion?
 
-that behaved more like real fire
-but we had complete control over,
+Shrek.
 
-'cause we wanted to use it, obviously,
+So, Shrek.
 
-as the Dragon's
-main defense mechanism here.
+I pray that you take this favor 
+as a token of my gratitude.
 
-His little tail is smoking.
+Thanks.
 
-This was really scary
-at one point for kids,
+You didn't slay the dragon? It's not my job to do this. Now, come on!
 
-when the music was even bigger
-and more dramatic,
+But this isn't right. ???
 
-but John Powell was amazing.
+That's what all the other knights did.
 
-He took it a bit more heroic
-and a little more positive,
+Yeah. Right before they burst in the flame.
 
-and you realize
-that nobody's gonna get that badly hurt,
+That's not the point.
 
-and the kids kind of get over it.
+Wait. Where are you going? Exit is over there.
 
-Plus, when they see that Dragon
-falls in love with Donkey, it's okay.
+Well, I have to save my ass.
 
-There's also, there,
-a very nice storytelling shortcut.
+What kind of knight are you?
 
-Let's just throw Shrek into the room
-so he doesn't have to find her.
+One of a kind.
 
-It's so convenient. It worked.
+...rush into a physical relationship.
 
-I love this part. Poor
-Donkey. Little thing.
+I'm not that emotionally ready 
+for commitment of a this  magnitude.
 
-There she is.
+That was the word I was looking for. Magnitude.
 
-One of the challenging things,
-actually, in this part of the sequence
+Hey, that is unwanted physical contact.
 
-was all the smoke and atmosphere.
-Again, that's sort of volumetric stuff
+Hey, what are you doing?
 
-that's very difficult to do in CG and very
-computational, and was really quite a...
+Ok, ok, let's just back up a little and 
+take this one step at the time.
 
-Difficult to say. Difficult to say as well, yeah.
+I mean, we really should get to know each other first, 
+you know what am I saying.
 
-But it was a real challenge
-to build up this density in the air
+As friends, maybe even as ???
 
-as the smoke and fire
-and everything kicked up.
+Hey don't do that. That's my tail. 
+That's ma personal tail.
 
-But we really wanted to give it
-a softer look in general,
+And you're going to tear it off....
 
-to make it feel like another world
+Oh, no. No!
 
-and not the traditional,
-hard-edged CG look.
+It talks?! Yeah. It's getting to shut up, that's a trick.
 
-Really fun acting on the Dragon, too,
-which was a real difficult trick
+Ok, you two. Head for the exit.
 
-with her being so big
-and her texture so evident, but...
+I'll take care of the dragon.
 
-And not particularly vocal.
+Ruuuuun!
 
-Fairly limited facial animation setup
-for the Dragon,
+You did it. You rescued me.
 
-but we got to do a lot of good things
-with her.
+Amizing, you're wonderful. You're a ...
 
-A great tail swing on her. Her voice was difficult, too.
+...a little unorthodox I admit, but
 
-We ended up going through
-a lot of different panthers
+by deed is great and by heart is pure. 
+I'm entirely in your debt.
 
-and leopards and dogs,
+And where would a brave knight be without his noble steed.
 
-and Hans Zimmer, the composer,
-actually brought his dog into the studio
+I hope you heard that. She called me a noble steed.
 
-and left him there to whine. To whine for us.
+She thinks I'm a steed.
 
-This was another one of those moments
+The battle is won. 
+You may remove your helmet good sir knight.
 
-where we hit on the humor
-early on in storyboard,
+Aah, no. Why not?
 
-with Princess Fiona laying down
-to pretend to be asleep
+I have helmet hair.
 
-and pucker her lips in preparation
-for the kiss from her Prince Charming.
+Please. I wouldst look upon the face of my rescuer.
 
-That was first pitched
-from Catherine Yuh in the storyboard.
+Oh, no, you wouldn't, dust.
 
-It was sort of like,
-"That's it! That's amazing!"
+But, how will you kiss me?
 
-"That's the tone of the movie!"
+What? That wasn't in a job description.
 
-I do remember, too, this was
-the first animation we did with Fiona,
+Maybe it's a perk? No. It's destiny.
 
-and the first time we saw her
-get up from the bed,
+You must know how it goes.
 
-I think we all practically
-ran out of the room screaming,
+A princess locked in a tower and besieged 
+by a dragon is rescued by a brave knight.
 
-'cause it just didn't look quite right! That's right. It was pretty scary.
+And then they share true love's first kiss.
 
-The design, even, of Fiona
-was very scary.
+With Shrek? You think, wait...
 
-I mean, Tom Hester,
-our lead character designer,
+...you think Shrek is your true love?
 
-had built most of these characters
-in clay
+Well, yes.
 
-before we took them into the computer,
-and there's a bit of a difference
+You think that Shrek is your true love.
 
-between the translation
-from clay to computer, we found.
+What is so funny?
 
-She was much more stylized
-at one stage
+Let's just say, I'm not your type, ok?
 
-with big and more anime eyes
-and so on,
+Of course you are. You're my rescuer.
 
-and she just looked like this freaked-out
-ant-mannequin creature.
+Now, now remove your helmet.
 
-Just very scary. Yeah. It did not work.
+Look. I really don't think this is a good idea.
 
-Very tiny waist.
+Just take off the helmet. I'm not going to.
 
-Cameron was really fun to work with,
+Take it off! No!
 
-and we'd do recordings with her,
-and she would just go and go and go.
+Now! Ok, easy.
 
-She had more endurance than we did.
+As you command your highness.
 
-She was amazing.
+You're an Ogre.
 
-She really wanted to
-get into the physicality
+Oh, you were expecting Prince Charming.
 
-of the princess running down the stairs,
+Well, yes, actually.
 
-and she had Cody, one of our story guys
-who was reading lines with her,
+Oh no. This is all wrong. You're not supposed to be an Ogre.
 
-grab her arm and pull her
+Princess, I was sent to rescue you by lord Farquaad, ok?
 
-so that she could sound
-like she was being pulled by Shrek.
+He's the one, who wants to marry you.
 
-I thought he was gonna pull her arm out.
+Well, then why didn't he come to rescue me?
 
-Which Cody was only too happy to do.
+Good question. 
+You should ask him that, when we get there.
 
-He had a great joke,
-'cause his last name is Cameron.
+But I have to be rescued by my true love.
 
-We got him to do this finally after
-a year and a half of recording with her.
+Not by some Ogre and his pet.
 
-"Cody, go ahead. Tell her your joke!" "Do your joke, Cody. Perform!"
+Well so much for noble steed.
 
-And he goes,
-"Cameron, if you married me,"
+Look princess. You're not making my job any easier.
 
-"you'd be Cameron Cameron."
+Well I'm sorry, but your job is not my problem.
 
-So there's a cookbook back there.
-What does it say?
+You can tell lord Farquaad 
+that if he wants to rescue me properly,
 
-<i>Tasty Treats: How to Prepare a Knight.</i> Yeah.
+I'll be waiting for him right here.
 
-It's the Dragon's cookbook
-for cooking knights.
+Hey, I'm no ones messenger boy, all right?
 
-The art department, again,
-was amazing,
+I'm a delivery boy. You wouldn't dare.
 
-coming up with this kitchen,
-this Dragon's kitchen.
+You coming donkey? Put me down!
 
-Yeah, and everyone was really good.
+Yeah, I'm right behind you.
 
-The level of detail
-that we wanted to push things to
+Put me down or you will suffer the consequences.
 
-and the level of detail that
-the art department pushed things to,
+This is not dignified. Put me down.
 
-and then the level of detail
-that the effects animators,
+Ok, here's another question. Let's say that a woman 
+'digged' you, but you don't really like her,
 
-the lighters,
-and the animators went to...
+that way. Now, how you let her down real easy, 
+so her feelings aren't hurt?
 
-Speaking of lighting,
-this one was really funny,
+But you don't get burned to a crisp neither. 
+How do you do this?
 
-because we always wanted it
-to feel like, kind of, a disco boudoir.
+Just tell her, she's not your true love.
 
-This was the great
-Dragon seduction scene.
+Everyone knows it what happens when you find...
 
-We even had music playing
-at one point.
+Hey! The sooner we get to Duloc, the better.
 
-At one stage, we had
-<i>Love to Love You Baby</i> in there,
+Oh, yeah. You gonna love it there princess. 
+It's beautiful.
 
-and for a while we had <i>Puppy Love</i>
-played on the harp.
+And what of my groom to be, lord Farquaad. 
+What's he like?
 
-In a lot of ways,
-the lighters have it the worst,
+Well, let me put it this way, princess.
 
-because there's so many iterations,
+Men of Farquaad's stature are in short supply.
 
-and it's the end of the line,
-so things have to look right.
+Oh no, Shrek. There are those who think little of him.
 
-So it's back and forth
-and back and forth with the directors
+Stop it. Stop it, both of you.
 
-to make this perfect, make this right,
-and they never gave up,
+You know, you're just jealous that you can never 
+measure up to a great ruler like lord Farquaad.
 
-and they just did an incredible job. Some great slow-mo coming up.
+Yeah. Well maybe you're right princess. But I'd like 
+you do that measuring when you see him tomorrow
 
-The temp track we had
-was sort of a <i>James Bond</i> thing
+Tomorrow?
 
-done by the Propellerheads,
-and it had this great energy about it,
+It will take that long?
 
-and the composers...
-I think we really tortured them.
+Shouldn't we stop to make camp? No. That would take longer.
 
-They kept the flavor of it,
+We can keep going.
 
-but still working
-with Shrek's heroic theme.
+But there are robbers in the woods.
 
-Yes, and they did really great
-with this piece of music.
+Whoa, time out Shrek. 
+Camp is definitely something that sounds good.
 
-Wonderful. Yeah.
+Hey. Come on. 
+I'm scarier than anything we're gonna see in this forest.
 
-This is where we really wanted
-to play with, kind of,
+I need to find somewhere to camp, now!
 
-a live-action action-sequence feel,
+Hey, over here.
 
-which is why we started playing around
-with the camera speeds
+Shrek, we can do better than that. 
+Now, I don't think this is decent for princess.
 
-and just really shooting it more
-like this was kind of a live-action movie.
+No, no, it's perfect. It just needs a few homey touches.
 
-There's that extra-long column
-that they could slide down.
+Homey touches? Like what?
 
-That column
-would be three times longer
+A door.
 
-than any other column in that room,
+Well, gentleman I'll be d..., good night.
 
-but we needed it to be like that
-so they could slide down it.
+Do you want me to come in and read you a bedtime story, 
+'cause I will...
 
-Very sophisticated humor there. This one's funny, too,
+I said good night!
 
-because it was storyboarded
-by Dave Lowery,
+Shrek! What are you doing?
 
-who's storyboarded
-for Steven Spielberg quite a bit,
+I just..., you know...
 
-along with Simon Wells,
-the director from <i>Prince of Egypt,</i>
+Oh, come on, I was just kidding.
 
-and if you look at this gag,
-it is kind of a classic cartoon gag
+And that one, that's Throwback.
 
-of characters running
-in and out of corridors,
+The only Ogre to ever spit over three wheat fields.
 
-kind of popping up
-where you don't expect them to,
+Right. Yeah.
 
-but it worked really great,
-to drag that chain...
+Hey, can you tell my future form these stars?
 
-It's a really long chain. Very long chain.
+Well, the stars don't tell the future, Donkey.
 
-Didn't we refer to that overhead shot
-as the <i>Scooby-Doo</i> shot?
+They tell stories. Look.
 
-Yeah, I think so. I think in my presence you didn't.
+There's Blodna, the "Flatulent"
 
-I think I did in your presence.
+You can guess what he is famous for.
 
-Another cool slow-motion. I love this shot.
+All right. Now I know you're making this up.
 
-Yeah, I love this shot, too.
+No. Look. There he is and there's the group of hunters 
+running away from his stag.
 
-Simon Smith, our layout supervisor,
-had a lot of fun with this sequence.
+Man, there ain't nothing, but a bunch of little dots.
 
-And they all come up to speed
-as they're running. Very exciting.
+You know donkey, 
+sometimes things are more than they appear.
 
-The first time
-we put this sequence together,
+Forget it.
 
-everyone just was floored. Again, the fire there is incredible.
+Hey Shrek. 
+What are you gonna do when we get our swamp back, anyway?
 
-It was not only the balls of fire
-that we'd already had,
+Our swamp? You know. When we're through rescuing the princess 
+ and all that stuff.
 
-but we wanted the fire
-to actually be burning the bridge,
+We? Donkey, there is no we. There's no our.
 
-so they had to make fire
+There's just me and my swamp.
 
-that kind of tracked along
-physical objects and so on.
+And the first thing I'm gonna do,
+is build a ten foot wall around my land.
 
-The end of this sequence,
-when they all escape
+You cut me deep Shrek, you cut me real deep just now.
 
-and the Dragon is caught
-at the end here,
+You know, what I think? I think this whole wall thing 
+is just a way to keep somebody out.
 
-Steven Spielberg actually suggested
-we add a shot
+No, do you think?
 
-where she sits like a puppy dog,
-kind of pining away for Donkey,
+Are you hiding something? Never mind Donkey.
 
-and it really helped you remember her
-for when she comes...
+Oh, this is another one of those onion things, isn't it?
 
-First we kind of said,
-"Steven, what does he know?"
+No. This is one of those drop it and leave it alone things.
 
-Yeah, exactly. Yeah. "This is our movie!"
+Why don't you want to talk about it? Why do you want to talk about it?
 
-You know,
-"What are you talking about?"
+Oh, Why you block? I'm not blocking. Oh yes you are.
 
-It's so great to be able to get
-that kind of expert opinion
+Donkey, I'm warning you. Who are you trying to keep out? Just tell me that Shrek. Who?
 
-on the work you're doing,
-and it always helped us along the way.
+Everyone, ok?
 
-It was incredible.
-It was being at film school.
+Oh, now we're getting somewhere. Oh, for 'the love of pit'.
 
-With Professor Spielberg
-and Professor Katzenberg.
+Hey, what's your problem Shrek? 
+What do you got against the whole world anyway?
 
-This is the first sequence
-we actually animated
+Look. I'm not the one with the problem, ok?
 
-the whole sequence with Fiona,
-and because of that,
+It's the world that seems to have a problem with me.
 
-even though
-it's a relatively simple sequence,
+People take one look at me and go: AAA... Help! Run!
 
-no big effects,
-relatively simple lighting environments,
+A big stupid ugly Ogre.
 
-it was probably
-the most difficult sequence to light.
+They judge me, before they even know me.
 
-It was the one where we really had
-to figure out how Fiona's skin worked,
+That's why I'm better off alone.
 
-how these complementary shadows
-that we were doing worked on her,
+You know what? When we met, 
+I didn't think you're just a big stupid, ugly Ogre.
 
-because, when we went
-to the same level
+Yeah, I know.
 
-that we'd been
-on some of the other sequences,
+So, a... Are there any donkeys up there?
 
-she looked very dead.
-Her skin went too blue or too cold.
+Well, there's a Cabby. The small and annoying.
 
-She kind of looked dead.
+Ok, ok. I see him, now. Big shining one, right there. 
+That one, over there?
 
-So this was very challenging
-for Philippe and his team of lighters.
+That's the moon.
 
-Yeah. Acting-wise, too.
+Again. Show me again.
 
-We actually went back
-and reanimated her.
+Mirror, mirror, show her to me. Show me the princess.
 
-At one point
-we treated her a bit more balletically,
+Perfect.
 
-more theatrical, because she was
-pretending to be this princess...
+Yeah. You know I like like that. Oh come on baby...
 
-But it ended up looking
-like a bad high-school play,
+Donkey. Wake up. What? -Wake up.
 
-and we had to pull her way back into,
-sort of, human proportions.
+Morning. How do you like your eggs?
 
-Exactly.
+Good morning princess. What's all this about?
 
-This one coming up is so much fun,
-when the two of them laugh.
+You know, we kind of got of to a bad start yesterday 
+and I wanted to make it up to you.
 
-Again, just really fun animation.
+I mean, after all, you did rescue me.
 
-The little drag there on Donkey's mouth
-when he says, "Shrek."
+Thanks.
 
-His jaw and everything in there
-is fantastic.
+Well, eat up. We've got a big day ahead of us.
 
-I love this. He falls over.
+Shrek! What? It's a compliment.
 
-The animators looked a lot, actually,
-at dogs for reference for Donkey.
+Better out than in I always say.
 
-They looked at donkeys as well,
-of course,
+But that's no way to behave in front of a princess.
 
-but donkeys
-aren't particularly expressive.
+Thanks. She's as nasty as you are.
 
-They're not that expressive.
-Funnily enough...
+You know. You're not exactly what I've expected.
 
-So, they studied dogs a lot.
+Well, maybe you shouldn't judge people 
+before you get to know them.
 
-This is beautiful in her... That's not very nice.
+Princess!
 
-She just looks exquisite there.
-I love Shrek in his sooty makeup.
+What are you doing?
 
-Yeah, his expression is beautiful.
+???mon shery, for I am your saviour. 
+And I am rescuing you from this green...beast.
 
-That's my favorite
-Shrek facial expression.
+Hey! That's my princess. Go find your own.
 
-That was Fred, wasn't it? Yeah.
+Please, monster. Can't you see I'm a little busy here?
 
-Yeah. Great animation. This, too.
+Look, pal. I don't know who you think you are.
 
-Every animator
-had to do every character.
+Oh, of course. How rude that was.
 
-It was not like a traditional film,
-where you have a lead
+Please, let me introduce myself. Oh marry men!
 
-on each character. Right.
+Man, that was annoying.
 
-Each one of our team
-actually had to animate
+Oh, you little...
 
-whatever character appeared
-in their sequence. It's funny.
+Shall we?
 
-Donkey proved to be a little bit easier
-and a little more fun in some cases,
+???all the forin???
 
-'cause of the four legs
-and the expressive eyes,
+Whoa, hold on, now. Where did that come from?
 
-and you could go as far
-as you wanted with him.
+What? That. Back there. That was amazing.
 
-Fiona, a little trickier,
+Where did you learn that?
 
-because we all know
-how humans are supposed to move,
+Well, when one lives alone one has to learn 
+these things in case there's a...
 
-and any time
-she did something too extreme,
+There is an arrow in your butt.
 
-or lifted an eyebrow too far,
-it would just look funny,
+What? Oh, would you look at that.
 
-so we just beat up the animators
-whenever they had Fiona scenes.
+Oh, no... This is all my fault. I'm so sorry.
 
-It was also fun 'cause we had
-a variety of different animators,
+What's wrong? Shrek's hurt. Shrek's hurt? Shrek's hurt!
 
-but we had
-a largely male animation staff...
+Oh, no. Shrek's going to die. Donkey, I'm ok.
 
-Yeah. And we had to get them all up
+You can't do this to me Shrek. 
+I'm too young for you to die.
 
-and walking around like a woman,
-so that was kind of interesting.
+Keep your legs elevated. Turn your head ???.
 
-Some of them, the first time through,
+Does anyone know how to handle... Donkey! Calm down.
 
-she had a real good hip swing going
-at times.
+If you want to help Shrek, run into woods and 
+find me a blue flower with red thorns.
 
-A little too far. A little too far.
+Blue flower, red thorns. Ok, I'm on it. 
+Blue flower, red thorns. Blue flower, red thorns.
 
-I love this transition
-to the next sequence,
+Don't die Shrek. 
+And if you see a long tunnel, stay away from the light!
 
-where she's screaming and pounding
-and then bored, hanging there all day.
+Donkey! Oh, yeah. Right. Blue flower, red thorns.  Blue flower, red thorns.
 
-It works really well, to be able
+What are the flowers for? For getting rid of the Donkey.
 
-to spread the characters around
-to all the animators,
+Now, you hold still and I'll yank this thing out.
 
-because you get to learn a lot more
-about the characters that way.
+Hey! Easy with the yanking. I'm sorry, but it has to come out.
 
-They don't get stale.
+No, no. It's tender. 
+What you're doing here is the opposite...
 
-They grow as the film grows
-and as the animators take them on.
+Don't move. Ok, look. Time out. Would you... Ok.
 
-This has beautiful lighting.
-This very late day,
+What do you propose we do?
 
-late in the afternoon sequence
-just looks so great on the characters.
+Blue flower, red thorns. 
+Blue flower, red thorns. Blue flower, red thorns.
 
-It's a funny little thing coming up here,
+This would be so much easier if I wasn't colorblind.
 
-where Shrek and Donkey
-make fun of Farquaad's height,
+Blue flower, red thorns. Blue flower, red thorns.
 
-but we never actually have them
-meet Farquaad face to face.
+Hold on, Shrek. I'm coming!
 
-They have no idea how tall he was.
-It was left over from earlier versions
+Not good.
 
-where there was the dinner
-and the deal,
+Ok, ok, I can lose it. It's just about it.
 
-and Shrek was actually face to face
-with Farquaad. If you look back,
+Nothing happened.
 
-you'll see that Farquaad
-was up in his podium the whole time.
+We were just a...
 
-But since you know he's short, it works. It works fine. You don't question it.
+Look if you want to be alone, 
+all you had to do is ask, ok?
 
-This actually was a sequence
+Oh, come on. That's the last thing on my mind.
 
-where we had probably about
-six or seven height jokes in there.
+The princess here was just... Au!
 
-We had to trim it down, 'cause it just
-seemed like it went on and on.
+Hey, what's that? Is that...
 
-This is beautiful on her. I love this.
+There it is, princess.
 
-And again, we wanted to start planting
-the seeds of suspicion about Fiona.
+Your future awaits you. That's Duloc?
 
-Why does the sunset bother her?
+Yeah. I know. You'll shrink things lord Farquaad is 
+compensating for something, which I think needs, he has a
 
-What's she so concerned about?
-But without hitting it over the head.
+I guess we better move on.
 
-And also that there's something
-unexpected about her,
+Sure, but Shrek...
 
-like the way she screams at them
-and frightens them.
+I'm worried about Donkey. What?
 
-I love this facial expression here. Great facial expression.
+I mean. Look at him. He doesn't look so good.
 
-And just cut to the cave.
+What are you talking about? I'm fine. Well, that's what they always say.
 
-And when we were working
-on the sequence,
+And the next thing you know you're on your back.
 
-we kind of treated the sun almost like
-a fourth actor in the scene
+Dead! You know she's right. You look awful.
 
-that, compositionally,
-it just had to play enough of a part
+Do you want to sit down? You know, I'll make you up some tea.
 
-that we realized
-that there was some significance
+Well, I won't say nothing, but
 
-to the sun going down
-that was affecting Fiona.
+I've got this twinge in my neck. 
+And if I turn my neck like this, look. Au, see?
 
-Her superhuman strength.
+He's hungry. I'll find us some dinner. I'll get the firewood.
 
-Another great expression coming up
-from Shrek here.
+Hey, where are you going? Oh man, I can't feel my thumbs.
+I don't have any thumbs!!!
 
-You look up at him and...
-That's very cute.
+I think I need a hug.
 
-See, you just sit here
-and enjoy it with us.
+This is good. This is really good.
 
-We'll all just go, "Look at that face!" What is Donkey implying?
+What is this? Wheat rat.
 
-I love that. It is so unexpected.
+Rotisserie style. No kidding.
 
-We worked pretty hard
-at the end of that little bit
+Oh, this is delicious. Well, they also great in stews.
 
-to make that joke land.
-We tried a lot of different things,
+Now, I don't mean to brag, 
+but I make a mean wheat rat stew.
 
-and in the end it was just,
-"Leave it be, it's funny."
+I guess I'll be dining a little different 
+late tomorrow night.
 
-Another lovely piece of music here.
+Maybe you can come visit me in the swamp sometime.
 
-We used a lot of different things
-on the temp,
+I'll cook all kinds of stuff for you.
 
-but John and Harry just wrote
-such a lovely piece of score for here.
+Swamp toast, soup fish, eye tartar. You name it.
 
-I love Donkey on his back. He's so cute.
+I'd like that.
 
-The little stretch that he does
-coming up,
+Ah... , princess? Yes, Shrek?
 
-when they're looking at the sky,
-is so sweet.
+I'm a.... I was wondering.
 
-No shortage of scatological humor
-in this movie.
+Are you... a...
 
-No, it was very important. Very key,
+Are you gonna eat that?
 
-very thematic. We're very sophisticated.
+Man, isn't this romantic. Just look at that sunset.
 
-It's the stuff that people take for granted
-that still gets me.
+Sunset?! Oh, no. It's late. It's very late.
 
-The wrinkles in the clothes
-in Shrek's tunic and in Fiona's dress,
+What? Wait a minute. I see what's going on here.
 
-it's stuff that just seems so automatic,
+You're afraid of the dark. Aren't you?
 
-and adds
-to your suspension of disbelief,
+Yes, yes. That's it. That's, I'm terrified. 
+You know I'll better go inside.
 
-but is actually
-a big pain in the butt to do,
+But don't feel bad, princess. 
+I used to be afraid of the dark too.
 
-and, you know, our character TDs,
+Until... Hey, no, wait. I'm still afraid of the dark.
 
-the people who set up the characters
-and set up the clothing,
+Good night. Good night.
 
-came up with, pretty much,
-automated systems
+Ahh. Now I really see what's going on here.
 
-that did a lot of the clothing
-deformations, a lot of the wrinkling,
+Oh, what are you talking about.
 
-and then we had a clothing group
-to do all the rest of it.
+Hey I don't wanna even hear. 
+Look, I'm an animal and I got instincts.
 
-Shrek's, the bottom of his tunic,
-is basically set up separately
+And I know that you two are digging on each other. 
+I can feel it.
 
-from the top of his tunic,
-as is the bottom of Fiona's dress.
+Oh, you're crazy. 
+I'm just bringing her back to Farquaad.
 
-So, often during
-the course of production,
+Oh, come on, Shrek. Wake up and smell the fairemones.
 
-the characters are half-naked until... That's right.
+Just go in there and tell her how you feel.
 
-Most of this sequence...
-Most of these sequences
+There's nothing to tell. 
+Besides, even if I did tell her that... well you know.
 
-we saw Fiona in green leotards. And Shrek's plaid butt.
+I'm not saying that I do, 'cause I don't.
 
-You don't want to put that skirt through
-simulation till her animation is finished.
+She's a princess and I'm...
 
-I love this sequence
-where you pop around.
+...an Ogre.
 
-Donkey just appears one side
-and then the other.
+Yeah, an Ogre.
 
-He sort of developed this magical way
-of moving around that we just buy.
+Hey, where are you going? To get more firewood.
 
-But we didn't do it often.
-We did it selectively.
+Princess. Princess Fiona?
 
-And there's Fiona,
-and if you look very carefully,
+Princess, where are you?
 
-you can see that there's something up
-with Fiona here,
+Princess?
 
-but we just tried to keep her kind of
-in the half-light, half in the shadows,
+It's very spooky in here and are we playing little games.
 
-and really play with the lighting,
+No, no. Help! Shrek! Shrek!
 
-so it's kind of one of those things where,
-if you go back and look at it,
+No. -Shrek! It's ok. It's ok.
 
-you go, "Of course.
-She was a beast at that time."
+What did you do with the princess? Donkey, shhh. I'm the princess.
 
-"She was an ogress."
+It's me, in this body. Oh my god. You ate the princess.
 
-But when you watch it
-the first time through,
+Can you hear me? Donkey!
 
-hopefully... You don't see it.
+Listen, keep breathing. I'll get you out of there!
 
-You're not obsessed with that
-and it doesn't distract from the scene.
+Shrek! Shrek! Shrek!
 
-'Cause her eyes are big
-and her eyebrows are thin.
+This is me.
 
-You'll see her close-up right there.
+Princess? What happened to you?
 
-That's the beast Fiona,
-not our regular Fiona,
+You're a... different.
 
-but we put a warm light on her
-to kind of camouflage the green skin,
+I'm ugly, ok? Yeah.
 
-but we didn't want
-to cheat her that much
+Was it something that you ate? 
+'Cause I told Shrek those rats were a bad idea.
 
-and make it
-the beautiful princess in there.
+You are what you eat, I say. No. I've been this way as long as I can remember.
 
-It had to be the beast to work.
+What do you mean? 
+Look, I've never seen you like this before.
 
-Between Guillaume Aretos,
-one of the art directors,
+It only happens when the sun goes down.
 
-and Susan Hayden,
-one of the sequence supervisors,
+By night one way, by day another. This shall be the norm 
+until you find true love's first kiss.
 
-that shot went on for a good year. Probably about a year.
+Then, take love's true form...
 
-This is lovely,
-the two of them against the moon.
+Oh, that's beautiful. I didn't know you wrote poetry. -It's the spell.
 
-One of the things in this movie is,
+When I was a little girl, a witch cast a spell on me.
 
-we really wanted to have a number
-of quiet moments,
+Every night I become this. This horrible ugly beast.
 
-just moments that really allowed
-the audience to sit back
+I was placed in a tower to await the day 
+when my true love would rescue me.
 
-and sort of think about
-what's been going on,
+That's why I have to marry lord Farquaad tomorrow, 
+before the sun sets and he sees me, like this?
 
-and it was really nice
-to be able to do that.
+All right, all right. Calm down. 
+Look, it's not that bad. You're not that ugly.
 
-In an animated movie,
-where every frame is so deliberate,
+Wait, wait, I'll not lie, you are ugly. But you only look like this at night.
 
-sometimes the temptation
-is to really make it move the story along,
+Shrek's ugly 24/7.
 
-move the story along,
-so we really kind of wanted
+But Donkey, I'm a princess. 
+And this is not how a princess is meant to look.
 
-to keep some of those quiet bits. You had to have it to get to know Shrek.
+Princess. How about if you don't marry Farquaad?
 
-Okay, so now, earlier on
-we were talking about Mama Bear,
+I have to. Only my true love's kiss can brake the spell.
 
-and for those of you who didn't
-really click to what that is, well...
+But you know, you're kind of an Ogre.
 
-There she is. There's Mama Bear.
+And Shrek... Well you've got a lot in common.
 
-No! She's a bearskin rug!
+Shrek?
 
-There's actually a wealth of visual gags
-in here, throughout his bachelor pad.
+Princess, I... How is it going first of all? 
+Good? Good for me to. I'm ok.
 
-Originally that painting behind him
-was Farquaad on the half-shell,
+I saw this flower and thought of you because it's pretty.
 
-kind of like Venus on the half-shell.
+And, well, I don't really like it, but I thought 
+you may like it, because you're pretty.
 
-I love this sequence, only because
-for a long time I was singing it,
+But I like you anyway. A....
 
-and it was a very exciting day for me
+I'm in trouble. Ok, here we go.
 
-when we first showed it
-to Steven Spielberg and I realized,
+Who could ever love a piece so hideous and ugly? 
+Princess and ugly don't go together.
 
-"He's gonna hear me sing!" "That's me singing!"
+That's why I can't stay here with Shrek, but only chance 
+to live happily ever after is to marry my true love.
 
-But it's not me singing any more.
+Don't you see, Donkey? That's just how it has to be.
 
-This was actually a joke
-that Aron originally came up with
+It's the only way to break the spell.
 
-for the love montage sequence,
+Well, at least you've got tell Shrek the truth.
 
-but we ended up doing that sequence
-as a musical number.
+No, no. You can't breathe the word. 
+No one must ever know.
 
-The love montage comes later on
-in the movie, you'll see it,
+What's the point of being unable to talk? 
+You got to keep secrets.
 
-where they blow up the balloons
-and they have a day together.
+Promise you won't tell. Promise!
 
-But then we have the Eels song playing. We had an Eels song playing,
+All right, all right. I won't tell him. But you should.
 
-so it didn't work anymore,
-and for a while it wasn't in the movie,
+You know, before this is over, 
+I'm going to need whole lot of serious therapies.
 
-and then we decided
-we needed a moment with Fiona alone,
+Look at my eye twitching.
 
-a chance to kind of get to know her...
+I tell him, I tell him not.
 
-I'm gonna stop for a minute. Let's enjoy this together.
+I tell him. I tell him not.
 
-A chance to get to know her and see her
-having a little moment by herself,
+I tell him!
 
-being a typical fairytale princess.
+Shrek! Shrek! There's something I want ...
 
-But not. But not quite.
+Shrek. Are you all right?
 
-But not. Exactly. But then, she's an opportunist.
+Perfect. Never been better.
 
-And then we got to layer the joke,
-one thing on another and another,
+I... There's something I have to tell you.
 
-so she blew up the bird,
-and then we thought,
+You don't have to tell me anything, princess. 
+I heard enough last night.
 
-"Well, she's doing
-something nice, really,"
+You've heard what I said? Every word.
 
-"because she's making breakfast
-for Shrek."
+I thought you'd understand?
 
-It's funny layers because she's upset
-about blowing up the bird,
+Oh, I understand! 
+Like you said, who could love a hideous, ugly beast!
 
-and you see the eggs, and you think
+I thought that wouldn't matter to you. Yeah, well, it does.
 
-she's gonna be concerned
-for the baby birds,
+Ah, right on time. Princess. 
+I brought you a little something.
 
-but then she makes use of them,
-very productive use of them.
+What I missed?  What I missed?
 
-I love that little Donkey line here. Yeah, me, too.
+Princess Fiona. As promised. Now hand it over.
 
-When he wakes up. It's so funny. That was a lot bluer at one point.
+Very well, Ogre. The deed to your swamp. 
+Cleared out as agreed. Take it and go.
 
-We had to tone that one down.
+Before I change my mind.
 
-There's great acting from Shrek here,
-too, after she walks away.
+Forgive me princess for startling you, 
+but you startled me.
 
-"We're going to have a big day,
-aren't we?"
+For I've never seen such a radiant beauty before.
 
-And they mug to each other like,
-"Wow, what is she thinking of?"
+I am lord Farquaad. Lord Farquaad?
 
-Then Donkey licks his lips.
+Oh, no, no... forgive me my lord for 
+I was just saying short... farewell.
 
-Yeah, the thought of Donkey
-eating eggs, for some...
+Oh. That is so sweet. 
+You don't have to raise good manners on the Ogre.
 
-It really grosses you out!
+It's not like it has feelings. No. You're right. It doesn't.
 
-It's a little mad cow disease
-for my liking.
+Princess Fiona, beautiful fair flawless Fiona,
 
-There's the face. This is so fun.
-This is actually Cameron belching.
+I ask your hand in marriage. 
+Will you be the perfect bride for the perfect groom?
 
-She got an award for this
-on Nickelodeon.
+Lord Farquaad, I accept. Nothing would make...
 
-That first belch, I believe, is Sim,
-our editor, being Shrek belching.
+Excellent! I'll start the plans for tomorrow we wedd...
 
-But that's Cameron!
+No! I mean I... Why wait?
 
-And she didn't record that for the scene.
-We actually got that one for free.
+Let's get married today. Before sunset.
 
-Cameron is amazing.
-She's such a wonderful, down-to-earth,
+Oh, anxious are we? You're right. The sooner, the better.
 
-just very real person,
+There's so much to do.
 
-and she's so perfect for the princess
-in that way.
+There is the camera, the cake, the band, the guests... 
+Captain! Round up some guests.
 
-As you know, she's this person
+Farewell Ogre.
 
-who lives this glamorous
-Hollywood lifestyle.
+Shrek, what are you doing? 
+You let her get away.
 
-She's a supermodel, she's an actress,
+Yeah, so what. Shrek. There's something about her that you don't know.
 
-and she's just a really very real person. Totally normal and fun to be around.
+I talked to her last night. She's... Yeah I know you talked to her last night.
 
-Which is very like our princess.
+You're great pal, aren't you? Now, if you two are such 
+good friend, why didn't you follow her home?
 
-She's this very down-to-earth person
-who believes she has to play this role.
+Shrek. I want to go with you. I told you, didn't I?
 
-It's Vincent Cassel
-in a cameo appearance as Robert Hood.
+You're not coming home with me. 
+I live alone. My swamp, me and nobody else!
 
-He's so funny.
+Understand? Nobody! 
+Especially useless, pathetic, annoying, talking donkeys!
 
-This actually was, also, another one
-that was a bit bluer.
+But. I thought... Yeah. You know what? You thought wrong.
 
-Our story artist, Conrad, again,
+Shrek.
 
-found all these horrible pickup lines
-on the Internet,
+Donkey?
 
-where he was approaching Fiona
-and saying,
+What are you doing?
 
-"Did it hurt?" "What?"
-"When you fell from heaven."
+I was thinking of all the people, 
+you would recognize a wall when you see one.
 
-It was really horrible. It went too far.
+Well, yeah. But the wall supposed to go around my swamp. 
+Not through it.
 
-It was funny because it was icky,
-and then after a while it was just icky.
+It is around your half. 
+See? That's your half and this is my half.
 
-And here we get to do
-a classic musical number.
+Oh, your half?
 
-Just for a bit, though.
-Like the other classical numbers,
+Yes, my half. I helped rescue the princess.
 
-we always stop it
-with something abrupt.
+I did half the work. I get half the booty. Now hand me 
+that big old rock, the one that looks like your head
 
-Boy, the Riverdance thing is so fun.
+Back off! No. You back off!
 
-We just decided to mix together
-in the sequence
+This is my swamp. Our swamp.
 
-as many parodies as we possibly could. That's basically what it is.
+Let go, Donkey! You let go!
 
-For a while this seemed
-so out of context with the movie, too,
+Stubborn jackass. Smelly Ogre.
 
-'cause there's such a departure
+Fine!
 
-that suddenly we're in the middle
-of a musical number,
+Hey, hey, come back here. 
+I'm not through with you, yet.
 
-but once it was all sort of designed,
+Well, I'm through with you! Well, you know. You were always me, me, me.
 
-and they did a beautiful job
-with the location
+Well, guess what? Now it's my turn!
 
-so it kind of blended in,
-it worked really well.
+So you just shut up and pay attention!
 
-And bam! There she comes. Plus, it's a Fiona moment.
+You are mean to me, you insult me, 
+you don't appreciate anything that I do!
 
-We started out with a very Jackie Chan
-kind of thing here.
+You're always pushing me around or pushing me away.
 
-That was initially our inspiration.
+Oh, yeah? Well, if I treated you so bad, 
+how come you came back?
 
-We went back and looked at a lot
-of Jackie Chan movies for her.
+Because that's what friend do. 
+They forgive each other!
 
-And then while we were working
-on the movie,
+Oh, yeah. You're right Donkey. 
+I forgive you for stabbing me in the back!
 
-which took a fair amount of time,
+You're so wrapped up in layers, onion boy.
+You're afraid of your own feelings.
 
-there were a number of other movies
-that came out.
+Go away. See? There you are, doing it again.
+ Just like you did it to Fiona.
 
-Obviously <i>The Matrix,</i>
+And all she ever do, was like you. 
+Maybe even love you.
 
-which is featured very shortly. Coming up right here.
+Love me? She said I was ugly! A hideous creature.
 
-That's a Jackie Chan thing. That's a Jackie Chan thing.
+I heard that you two were talking. She wasn't talking about you. She was talking about...
 
-Just before finishing the sequence,
+...somebody else.
 
-<i>Crouching Tiger, Hidden Dragon</i>
-came out,
+She wasn't talking about me? 
+Well then, who was she talking about?
 
-so were able to make
-a little parody of that,
+No way, I'm not saying anything. 
+You won't listen to me, right? Right?
 
-adding the very enhanced
-sound effects...
+Donkey. No!
 
-Right here? Let's listen together. And this triple-kick coming up here.
+Ok, look. I'm sorry, all right?
 
-Yeah. Super cool.
+I'm sorry.
 
-There's a great little bit on Fiona
-where she blushes in a moment.
+I guess I am just a big stupid, ugly Ogre.
 
-Aron, you thought of that idea,
-didn't you?
+Can you forgive me?
 
-No. That she should blush?
+Hey, that's the friends are for, right? Right.
 
-Actually, all this forest is lovely.
+Friends? Friends.
 
-We wanted a very, sort of,
-naturalistic forest here,
+So? What did Fiona said about me?
 
-and we wanted to give it an overall,
-kind of, green palette,
+Why are you asking me for? 
+Why don't you just go ask her.
 
-and Janet, the lighting supervisor
-on this sequence,
+The wedding! We'll never make it in time!
 
-did just an amazing job of capturing
-that soft light,
+Never fear! For where there is a will, 
+there is a way.
 
-the shafts of light
-filtering through the trees.
+And I have I way.
 
-I love the red bushes.
+Donkey?
 
-Henrik did a great painting for this
-sequence that had a beautiful palette
+I guess this is just my act of magnetism. Oh, come here, you.
 
-of these greens, grays
-and the red bushes,
+All right. All right. 
+Don't get all started. No one likes kissass.
 
-and it was just wonderful
-to see it captured in lighting.
+All right, hop on. Hold on tight.
 
-An example of Donkey
-popping around again.
+I hadn't have a chance to install seat belts, yet.
 
-Look at the size of his head!
+People of Duloc. We gather here today 
+to bear witness to reunion of our new king...
 
-We had this challenge
-all the way through,
+Excuse me. Could you just skip ahead to "I do's"?
 
-because Fiona's head is so petite,
+Go on.
 
-and Donkey and Shrek
-have such an enormous head,
+Go ahead and have some fun,
+if we need you, I'll whistle. How about that?
 
-or enormous heads, each. Yeah.
+Shrek, wait, wait a minute. 
+You want to do this right, don't you?
 
-And at one stage,
-when we have a romantic scene,
+What are you talking about? It's the line, it's the line you got to wait for.
 
-and Shrek is actually
-almost gonna kiss Fiona,
+The priest is going to say: 
+"Speak now or forever hold your peace".
 
-it was kind of like, "Oh, my God,
+And that's where you say: "I object".
 
-"he could just bite your head off!" "He's gonna eat her."
+I don't have time for this. Wait, wait. What are you doing? Listen to me!
 
-I think this scene was also
-originally boarded by Tim Johnson,
+Look, you love this woman, don't you?
 
-or written by Tim Johnson... That's right.
+Yes. You want to hold her!
 
-One of the directors of <i>Antz.</i>
-Helped us out a lot along the way.
+Yes. Please her! Yes!
 
-I love this chasing of the arrow,
+Then you got to, got to try a little tender love.
 
-and then his huge hand
-across her head.
+The chicks love that romantic crap. All right. Cut it out. When does this guy say the line?
 
-Love this gag.
+We got to check it out.
 
-Simple things make me laugh.
+And as so by the power of these two...
 
-Again, just the amount of detail
-in the flowers and the leaves,
+What do you see?
 
-the way the bush moves
-when he grabs them there,
+I now pronounce you... There they go!
 
-it's the kind of commitment
-to attention to detail
+...he all ready said it. Oh, for 'the love of pit'.
 
-that we were just very, very lucky
+I object!
 
-that people who had already
-worn themselves out on <i>Antz</i>
+Shrek?
 
-were willing to jump back in.
-When we started this movie,
+Oh, now what does he want?
 
-they asked us
-how difficult did we think it would be,
+Hi, everyone. Having a good time, aren't you?
 
-and we said,
-"Five to 10 times that of <i>Antz,"</i>
+I love Duloc, first of all. Very clean.
 
-and everyone fell off their chairs,
-and then got back up
+What are you doing here? Really, it's rude enough being alive, when no one wants you.
 
-and just kind of launched into it.
+But showing up uninvited to a wedding...
 
-And Aron probably had to deal
-with them all trying to quit periodically.
+Fiona! I need to talk to you. Oh, now you wanna talk?
 
-I did, but I have to say that they
-made this look almost easy, in a way,
+Well it's a little late for that. 
+So if you'll excuse me.
 
-and it wasn't, but their skill
+But you can't marry him! And why not?
 
-really made it. The contact here,
+Because, because he's just marrying you 
+so he can be king.
 
-when Shrek has to pick Donkey up,
+Outrageous! Fiona, don't listen to him. He's not your true love.
 
-you forget how difficult
-this kind of stuff is.
+What do you know about true love? Well, I ...I'm in...
 
-The animators have to deal
-with all the different contact points
+Oh, this is precious.
 
-of picking up Donkey and having him
-flop on Shrek's shoulder,
+The Ogre has fallen in love with the princess.
 
-and everything you'd just take
-for granted is such a deal.
+Laugh.
 
-This was actually one of...
+Shrek. Is this true?
 
-I think this might have been
-the very last sequence
+Who cares. It's preposterious. Fiona, my love, we gonna kiss 
+away for our happily ever after. Now kiss me!
 
-that we lit and animated,
+By night one way, by day another.
 
-and it was one that,
-because it worked fine in storyboards,
+I wanted to show you before.
 
-we left it that way for the longest time,
+Well. That explains a lot.
 
-and we knew that, coming back in,
-it was many different environments,
+Oh. It's disgusting. Guards, guards. 
+I order you to get them out of my sight.
 
-something that we could kind of
-break up a little bit more.
+Now! Get them! Get them, both! No!
 
-But it got to benefit from a lot of
-the things we'd developed throughout,
+This marriage is minding,  and that makes me king. See? See?
 
-like the grass moving
-when they walked through it there,
+Shrek! No.
 
-the insects, the atmosphere.
+Don't just stand there, you dogs. Get out of my way.
 
-We actually generated
-a new type of tree for this sequence.
+No! Shrek!
 
-The effects artists developed
-what they called a digital greenhouse,
+And as for you my wife. Fiona!
 
-where they could actually
-grow these trees,
+I'll have you locked back in that tower 
+for the rest of your days!
 
-which is why they're able to get
-so much variety within the trees.
+I will have order. I will have potential. 
+I will have...
 
-This is one of my favorite jokes.
+All right, nobody move! 
+I got a dragon here and I'm not afraid to use it.
 
-Yeah, no actual animals were injured
-in the making of this film,
+I'm a donkey on the edge!
 
-despite appearances.
+Celebrity marriages. They never last, do they?
 
-But still, the balloons are happy.
+Go ahead Shrek.
 
-As they float away, you can see
-they're blinking. They're alive.
+Fiona? Yes, Shrek?
 
-I love this gag, when they get
-into a little shoving match.
+I love you.
 
-It's just so cute.
+Really?
 
-Superhuman strength.
-He shoves her into that bush.
+Really, really.
 
-See, they blink. It's okay.
+I love you too.
 
-It's what happens when they get
-to 10,000 feet that I'm worried about,
+A time for true love's first kiss...
 
-and the air pressure goes down, and...
+Fiona?
 
-We're just enjoying it. Bear with us.
+Fiona? Are you all right?
 
-That line used to go a little bit further,
-but we decided to cut it off there.
+Yes. But I don't understand.
 
-We had our first test screening
-with a lot of kids and parents in it,
+I'm supposed to be beautiful.
 
-and we were surprised
-at how uncomfortable we felt
+But you are beautiful.
 
-with even stuff
-that was pretty innocuous
+I was hoping this would be a happy ending.
 
-from our experience,
-but it just made us...
+God bless us, everyone.
 
-It made us cringe a little bit, so we... The criteria we were using at this point
-
-was not so much,
-"What would our children accept?"
-
-'Cause we don't have children... 'Cause we don't have any.
-
-But it was,
-"What would our mothers accept?"
-
-"What could we actually put in the movie
-without getting into trouble?"
-
-This is everyone's favorite,
-
-little broken neck. It's a cute little Eddie moment.
-
-In fact, mostly this scene is just in here
-for this cute little Eddie moment.
-
-"I think I need a hug."
-
-This next sequence
-was kind of challenging,
-
-'cause we had a backlit situation
-
-where we wanted enough fill light
-and this very subtle kind of blue shadow
-
-and very warm background behind,
-
-and Mark Wendell and his team
-did just a beautiful job
-
-of capturing this very romantic
-rim lighting on the characters,
-
-in a scene when they're eating rat! Great animation in this sequence.
-
-Yeah, I love
-some of the facial expressions.
-
-Yeah, some of the most subtle work
-on Shrek,
-
-when he's trying to ask Fiona
-if she's seeing anybody.
-
-A lot of that's Jason Reisig. Jason.
-
-Don did some great stuff right here, too.
-
-Yeah. Absolutely.
-
-That was one of the first pieces
-
-of more contemporary music
-that we actually ever put in the film,
-
-and we started playing around
-with the idea of having music
-
-that was a little unexpected
-and was anachronistic
-
-in the same way as much of our humor.
-
-This is one of the first pieces
-that we put in, and it just kind of stuck.
-
-It stayed in there all the way through,
-
-and we ultimately recorded it
-with this band, Lifehouse.
-
-This is when you realize
-he could bite her head off.
-
-Yes.
-
-It's very sweet.
-
-We're gonna go quiet
-for a moment here.
-
-We're all moved. Enjoy the sweet music.
-
-Poor Shrek.
-
-We fought about that,
-adding that close-up on Shrek.
-
-It was something
-that Jeffrey wanted to do,
-
-and we were convinced it wouldn't work,
-and he was right. It worked. It was great.
-
-That joke used to go on further.
-He'd say,
-
-"No, it's spinach I'm not afraid of."
-
-It was really funny in the scratch version.
-Somehow, it just lost its humor.
-
-You know, you forget.
-You see this movie so many times
-
-when you're working on it that you forget
-what's funny and what isn't.
-
-You have to bring people in
-to remind you,
-
-"No, no, leave it
-alone! It's a great joke!"
-
-I like this little bit here where Shrek
-is just playing with the stick there.
-
-Whenever you can find a little thing
-that a character would just normally do,
-
-that a person would do
-without thinking about,
-
-it really brings the characters to life,
-
-and I love it when the animators
-find something like that,
-
-and just giving him this prop
-meant he could kind of use it in a way
-
-that just feels very natural,
-
-and just somehow makes him feel
-a bit more human.
-
-This is a really big moment for Shrek
-in the movie,
-
-and we really did not want
-to hit it over the head,
-
-but we wanted to make sure
-that people got
-
-that he's never made
-any sort of commitment to anyone
-
-in terms of how he felt about anything,
-and it's very hard for him to do.
-
-That's why that firewood shot
-was so important.
-
-There you go. That shot was in the movie,
-
-out of the movie. We kept saying,
-"But it's not a movie about firewood!"
-
-Ultimately, the wood... Ultimately, it was.
-
-Ultimately, the wood... Ultimately, it was.
-
-The wood representation
-was very strong.
-
-The only insert shot
-
-in the whole movie that we did! That's true. That's true.
-
-This was an environment
-where we first really pushed the idea
-
-of kind of letting things fall away,
-
-having more darkness,
-kind of a smoky atmosphere,
-
-and it was one of the ones
-we did fairly early on.
-
-We really wanted to establish a mood
-
-with the design and the treatment
-of the lighting in here.
-
-Again, it's a limited palette.
-
-It's mostly blue,
-with just the orange of the firelight.
-
-I think this was also Paul Wang,
-
-our sequence supervisor. Right.
-
-I love this one, where she is climbing up
-out of the dust of the flour.
-
-We did everything we could
-to make her look as scary as possible,
-
-with the ears and taking on,
-sort of, a monster pose.
-
-And a fantastic performance
-from Eddie here.
-
-It's sweet when she touches his cheek,
-reminding him who she is,
-
-and you forget
-how difficult things like that are again.
-
-It's the interaction
-with the fingers and all that fur.
-
-The music's really beautiful here. Yes, it's very pretty music.
-
-The design of Fiona as an ogress
-was really important,
-
-that there was some commonality,
-even though she looks very different,
-
-she's obviously wearing the same dress
-and the same hair and so on,
-
-but we really worked hard
-
-to make the eyes and eyebrows
-be very, very similar,
-
-so that when Donkey
-looked into her eyes
-
-or we looked into her eyes,
-we could still see
-
-that it was Princess Fiona inside there.
-
-In the book,
-there's a very different design for her.
-
-We actually experimented quite a bit
-
-before we landed
-on this sweet, cherub face
-
-that's very closely related to Shrek,
-in that she's an ogre.
-
-We took her hair,
-made it a little more wild
-
-than when she's in her princess form.
-
-Just trying to find
-that sweet earthiness about her,
-
-like this is the way she was meant to be.
-
-Even the choice
-of her dress being green
-
-was kind of a subconscious thing
-we wanted to do,
-
-to make you feel
-that she belonged in Shrek's world.
-
-So subconscious
-I don't remember us discussing that.
-
-Yeah, we did.
-
-We had a great costume designer.
-It was just like a live-action film.
-
-You worked with her before, right? Isis Mussenden, yeah.
-
-Isis is fantastic. She did a great job.
-
-She sent us samples of fabric
-for the wedding outfits and trim...
-
-We all got to wear skirts
-and dance around.
-
-She didn't have to fit any actors,
-so she was especially happy.
-
-I love this little moment
-with Donkey here.
-
-This is a very funny ad-lib
-that Eddie threw in,
-
-and plus it's really where you just get
-this real warmth from his voice.
-
-It's amazing.
-
-He's being very cruel, if you think
-about it, but he's saying it so sweetly.
-
-He doesn't mean anything by it.
-
-And then this is some digital tears
-coming up.
-
-Her spell was an interesting problem,
-
-trying to find the right way to explain
-what was going on with her
-
-without saying
-that she was a beautiful princess
-
-that had an "ugly curse" on her.
-
-We actually wanted to play it
-the other way around,
-
-that maybe she was born an ogress
-who had a "pretty curse" on her,
-
-or a "pretty spell" on her.
-
-This, to me,
-is some of Mike's most natural improv,
-
-where we really just gave him, again,
-some sort of ideas of where to go
-
-and the kind of things
-that we wanted him to say,
-
-and he just ran off a few different things,
-and it meant it was very natural.
-
-It really felt like he was struggling
-to find the right words.
-
-He totally got into
-the moment of this, too.
-
-Really. Very much.
-
-This is actually a really big turning point
-for Shrek right here,
-
-and this is one of those bits of animation
-where I still, after all this time,
-
-just kind of forget
-that Shrek is an animated character,
-
-'cause he just seems so lifelike.
-
-Cheung just did such an amazing job
-with the face here,
-
-where you just see Shrek
-is completely crushed overhearing this,
-
-and he's just such a person
-at that moment.
-
-It's great. Poor old Shrek.
-
-It's kind of a story turning point
-for us, too,
-
-if I remember correctly,
-sort of coming up with the idea
-
-of him overhearing this
-and misunderstanding.
-
-It's true.
-We used to have a big sequence
-
-with Fiona and Shrek fighting.
-
-He actually came back
-and heard Donkey screaming
-
-and, just in the shadows,
-saw this creature
-
-and chased her down and attacked her,
-
-and then realized
-that it was an ogress like himself,
-
-and we couldn't quite get it to work,
-
-and we used to have them
-arguing the next day,
-
-and it had an interesting dynamic,
-
-but it didn't really get the story moving
-in quite the way we wanted,
-
-and one of the writers, Joe Stillman,
-came upon this idea
-
-of this misunderstanding,
-where Shrek overhears something
-
-and there's this complex, multiple level
-of misunderstanding
-
-where Shrek thinks she's rejecting him
-and she thinks he's rejecting her,
-
-and it just really is
-one of those classic things,
-
-I think, that happens in relationships,
-
-where it just comes down
-to one little moment.
-
-This is real sweet. Another one
-of those classic tragedies where,
-
-just when she wants to fess up
-and the two of them,
-
-if they could just talk,
-they could figure it all out.
-
-Another beautiful music cue. Yes. Lovely music.
-
-You'll notice in a couple of these shots
-we played with things like lens flares.
-
-It was kind of fun to add artifacts,
-
-things that are accidental or mistakes
-or artifacts of real film
-
-that you actually use in CG to, again,
-cue the audience
-
-into a language they're familiar with.
-People have seen so many movies,
-
-and, 'cause we want them
-to believe in this world,
-
-if we use artifacts that are existent
-in live-action movies,
-
-people just kind of accept it,
-
-and somehow it tricks them into thinking
-that the world is real.
-
-It's fun when Farquaad
-comes riding over the hill
-
-like the classic knight in shining armor.
-It was a real trick getting armor on him,
-
-to make him look,
-as much as we could have,
-
-the natural proportions of a regular guy.
-
-We had to build these arms
-that his own arms popped into,
-
-and fake extendo-legs hanging down
-on either side of the...
-
-Didn't Catherine Yuh board this also? Yeah.
-
-Beautiful. It totally cracked us up
-
-when we saw the extendo-legs
-for the first time.
-
-And the way he's lifted out of the saddle
-by his aides.
-
-So he does kind of trick you there.
-
-This sequence had to be
-about the fastest going through lighting.
-
-Susan did an amazing job
-with the sequence,
-
-because it was towards the end
-and we were running out of time,
-
-and yet it kind of had to be
-this very beautiful morning light
-
-where it's this sensitive,
-romantic fairytale moment,
-
-and I'm just amazed at how quickly
-
-the lighters got through this sequence... Look at that.
-
-And it is so beautiful. Excalibur.
-
-Great bit of acting on Fiona
-coming up here as well.
-
-This is the extendo-legs. There we go. Yeah, this moment coming up,
-
-where she looks to Shrek
-for validation is, again,
-
-one of those moments that you forget
-that she's an animated character.
-
-You see her look to him hopefully,
-
-and then see her tense up
-and her lips tighten. It's just beautiful.
-
-Edip did a great job
-with those close-ups.
-
-I was really happy
-with how we tried to do
-
-as much with few words as possible. Yeah.
-
-I think a lot of that's a real tribute...
-This moment here. Here we go.
-
-It's a real tribute to the animators. Yeah.
-
-There's no dialogue there,
-and yet you know exactly
-
-what's going on in her head.
-
-And then Shrek is devastated. A classic misunderstanding.
-
-I love that moment just before there
-
-when Donkey's trying
-to get out of the shot, too.
-
-He's backing up.
-I was like, "Donkey, get out of the shot!"
-
-"Get out of the shot!"
-
-As if you're on the set,
-silently gesturing to him.
-
-This is fun. She magically flies up.
-
-There was just a little moment
-of independence there.
-
-One of the things we always tried to do
-
-was kind of make Fiona
-a very independent woman,
-
-and even though
-she's offered assistance
-
-up onto the horse there,
-she just jumps up anyway.
-
-I love the lighting in this sequence.
-
-I really like the mood
-and the atmosphere.
-
-And I hate to admit it, but Mike made
-us cry during the recording session.
-
-He did. Mike was great here. Yeah, that was amazing on him.
-
-You could hear the cry in his voice.
-He was really moved.
-
-It's devastating,
-what he does to Donkey.
-
-It's a sequence
-where we have to divide everyone up,
-
-off into their chosen fates,
-and everyone's so upset.
-
-Everyone except Farquaad, of course. I like the blush here.
-
-We have tears welling up
-in the characters' eyes,
-
-which was something that, initially,
-we were going to give up.
-
-We just thought
-it was a layer of difficulty
-
-that we didn't really want to get into,
-
-but again, the effects artists
-came forward and said,
-
-"Look, we think it's something
-we can do."
-
-So we were able to have characters
-kind of welling up with tears, blushing,
-
-those little moments
-that we just notice in real humans.
-
-We tried really hard to make
-the transitions in here very smooth
-
-from one character to the other,
-
-especially relating Shrek's situation
-to Fiona's situation,
-
-realizing that they belong together
-but they were separated.
-
-Again, the use of music here,
-I'm very, very happy with.
-
-His voice, John Cale's voice,
-
-just really conveys so much
-of what Shrek's going through
-
-in its very ironic tone.
-
-I'm moved even now. I can't say a word. Our animation supervisor, Raman,
-
-would never watch the movie
-all the way through,
-
-because he wanted to save it
-till the last minute,
-
-to actually get to see the whole story,
-and he would only agree to watch it
-
-if we didn't watch it in order.
-
-But he would always cry
-in this sequence.
-
-It chokes people up. A lot of people.
-
-It was really effective,
-even in storyboard form.
-
-I know I cried at many times
-during the making of this movie,
-
-but it usually wasn't the content
-
-of the movie! You weren't moved.
-
-It was 'cause I was yelling at you.
-
-This is one of my favorite little gags
-in the movie, too.
-
-Now, we're not disparaging
-short people. Farquaad has issues.
-
-He just can't recognize that,
-of everyone he's kicking out,
-
-he would consider himself part of them,
-but he's got blinders on.
-
-It's his own form of denial.
-
-There's a lot of use of reflection
-in this sequence,
-
-which was kind of a deliberate idea,
-
-that the characters had a moment
-to reflect on themselves,
-
-but again, it was just one of those things
-that in computer graphics is achievable,
-
-and just adds this whole
-extra dimension to the sequence.
-
-There was a whole sequence
-at one time of Donkey...
-
-Confronting. That's right.
-
-Talking to his own reflection,
-
-and his reflection talking him
-into going to Shrek
-
-and yelling at him
-and stand up for himself.
-
-There's some wonderful
-Eddie performance, too,
-
-yelling at the Dragon.
-"Chill with the groveling."
-
-So this is now Donkey
-coming into his own,
-
-So this is now Donkey
-coming into his own,
-
-finally, for the first time,
-standing up for himself
-
-and telling Shrek what he really thinks.
-
-They really...
-You know that they're friends,
-
-and Donkey
-is just standing up for himself,
-
-but it's under the guise of this argument,
-
-but actually he's come back
-to live on Shrek's land with him.
-
-This is fun.
-
-I love this little tussle they have.
-
-It used to be "a big-ass rock."
-We had many, many ass jokes in this,
-
-and I think collectively our crew
-just talked us into it.
-
-One day they counted them up,
-and I think we had something like 12,
-
-so we lost all of the ones
-that didn't just work on the principle
-
-that it's a pun for donkey.
-
-This scene was a really difficult scene.
-
-In writing, we used to actually
-have this sequence
-
-where Shrek was arrested
-and thrown in jail,
-
-and the reason that ultimately Donkey
-actually held something over him
-
-was that he managed
-to steal the key to the cell,
-
-and he was gonna use that
-to get Shrek out of there,
-
-and once we got rid of the idea
-of Shrek being captured,
-
-we didn't really have anything
-that Donkey could hold over Shrek.
-
-And then we realized that instead
-of actually having a physical thing
-
-that he could hold over him,
-he had this information about Fiona.
-
-He knew what Fiona
-really thought of Shrek,
-
-and that was something
-that was of great value to Shrek,
-
-so he could get the apology out of Shrek
-by holding that over him.
-
-He also knows what Fiona really is. Exactly.
-
-You know, internal motivations
-always turned out to be
-
-the best way to go with Shrek,
-from getting him out of his swamp,
-
-not because
-he couldn't live there any more,
-
-it's because he didn't want to
-
-when he was surrounded
-by all those annoying characters.
-
-It's the same case here.
-It just works more from the heart.
-
-I think coming up here
-is another lovely little bit
-
-of sensitive facial animation on Shrek.
-
-We're all just enjoying it together.
-
-There's a moment that Anthony did
-there that was just really lovely.
-
-Again, just those little looks away,
-it just really works, I think, very...
-
-Just that look away, you really know
-that he's kind of thinking.
-
-Bringing the Dragon back
-was so much fun.
-
-It was just one
-of those classic moments
-
-that kids just wish they...
-
-I think all of us just wish we had
-a pet dragon when we were kids,
-
-and we'd just jump on it after school
-and escape.
-
-I did actually have a pet dragon as a kid.
-
-That's right. They occur naturally
-in New Zealand, don't they?
-
-You know,
-you can't import them anymore.
-
-They've banned that.
-They're hard to breed.
-
-There she is.
-
-In this, we actually looked
-at a sequence from <i>True Lies,</i>
-
-when the Hawker Harrier lands,
-
-and we were really going
-for that big action moment,
-
-but with a dragon. The trees and the grass
-
-and everything in this sequence
-are so beautiful...
-
-The leaves blowing around. That Janet supervised.
-
-And this bit of score is just beautiful.
-It's kind of like the main theme
-
-again coming through,
-but this time in a very...
-
-Just lifts your soul. Exalting... Yeah.
-
-I love that shadow of the dragon
-down there on the ground.
-
-Shows you just how high up they are.
-
-Those kind of details were really fun
-to keep track of,
-
-just to give everything
-that extra bit of magic.
-
-Just to give everything
-that extra bit of magic.
-
-I think, actually, the really good thing
-
-about that big uplifting score there
-is that,
-
-if you're still listening to this
-directors'-producers' commentary,
-
-it'll wake you up again.
-It's really useful in that way.
-
-I love the signs. I love that gag.
-
-We had them in the tournament as well.
-It's just a little running gag.
-
-It's just a little reminder
-of how much control Farquaad has
-
-over his environment, all his people.
-
-It's a very totalitarianistic kind of rule
-that he has.
-
-The people are so docile.
-
-They just sort of go
-with whoever's the leader now.
-
-Once Farquaad is eaten,
-they just seem to accept it all,
-
-but we figured if we added those
-little touches showing his dominance,
-
-that that would be enough
-to let you know
-
-that maybe it wasn't such a good idea
-that he was the ruler.
-
-This is another Conrad moment
-coming up here where...
-
-He just pitched this idea to us.
-
-He just went off and developed it,
-and just had us in tears.
-
-At times we were tempted to cut it,
-'cause it's quite a distraction.
-
-I mean, really, it's time they just got on
-with the rescue bit.
-
-There's just two funny moments here
-that are totally worth it for the humor.
-
-It is so classic Donkey,
-
-because he just wants to sing
-and belt it out.
-
-I love this one. This is a great gag,
-
-with Donkey being thrown up
-to check on the situation inside.
-
-The difficult thing sometimes
-in a comedy where you've got a story,
-
-you've got the humor,
-you've got a theme,
-
-and you've gotta kind of
-play the balance between them,
-
-and the temptation
-to get on with the story
-
-at the cost of comedy
-is sometimes very tempting,
-
-and in this case we really thought,
-
-"No, let's just play out the humor.
-We'll get to the big moment soon."
-
-I think it keeps the story
-from becoming too heavy-handed, too.
-
-Great ad-libbing there from Mike.
-
-That ad-lib was actually
-for a different sequence.
-
-At one stage that was actually
-for the tournament,
-
-and it didn't really fit in there any more,
-and when we came to this sequence,
-
-we needed this kind of moment
-when Shrek was walking in,
-
-and there was nothing there
-that really gave it a little punch,
-
-and we sort of remembered
-this ad-lib that Mike had done
-
-and put it in there,
-and it just worked a treat.
-
-It dealt with his discomfort
-at being in this situation, too.
-
-Tricky sequence.
-I remember boarding this one ages ago.
-
-It's always hard to do
-a three-way conversation
-
-to know who's looking where,
-and screen direction,
-
-and this was real tricky.
-
-This sequence is actually
-two-and-a-half sequences shot-wise,
-
-as Jane, the associate producer,
-kept saying,
-
-"It's not one sequence, guys."
-
-Typically, the end of your movie
-
-is something that you work
-over and over and over again,
-
-trying to hit all the right details.
-
-When does she transform?
-When does Shrek come in?
-
-How much of a participant is he
-in her rescue?
-
-We found that,
-even if he just whistled for the dragon,
-
-it turned out that that was enough
-to make him active enough
-
-in turning the situation around.
-
-John was great in this sequence, too.
-John Lithgow is just amazing.
-
-And this next part coming up, again,
-
-with the very organic,
-magical kind of effects,
-
-was very challenging
-for the effects artists.
-
-We needed something that was
-dynamic and yet ethereal and beautiful,
-
-and it was a very difficult kind of effect
-to develop.
-
-I love that faint.
-
-A generic.
-We call all our crowd people "generics."
-
-If you look in the crowd,
-you can find people that you know.
-
-It's a little challenge
-we had all the way through.
-
-One of the Merry Men
-was definitely one of our...
-
-Story guys. Effects supervisors. No, Monty.
-
-Monty. Yeah, he's doing the Macarena
-
-at the end. Yes.
-
-And our Friar Tuck is Vern Kramerson. I love that piece with Farquaad there.
-
-It's a beautiful piece of animation.
-Really nice lighting.
-
-This was a real trick. All of these guards
-grabbing hold of Shrek,
-
-all the contact and pulling
-and pushing back and forth.
-
-The other challenge we had
-in this sequence
-
-was the continual changing of light,
-as we start just before sunset,
-
-and by the end of the sequence
-the sun has set,
-
-and we wanted to get
-this gradual shift of light
-
-throughout the sequence,
-which made it quite challenging.
-
-Beautiful windows.
-
-Again, the graphic work
-from our art department,
-
-Julia, especially.
-
-Everyone's favorite Donkey line.
-
-And that burp
-was actually our music editor.
-
-Not treated in any way.
-He actually burps like that.
-
-Very sweet work
-on the two of these characters here.
-
-We're just enjoying it.
-Give us a moment.
-
-We actually...
-When we're recording these sequences,
-
-we record with the actors separately,
-
-and when we were recording this
-with Mike,
-
-we actually asked him
-to bring in his wife, Robin,
-
-and he actually recorded this
-with her reading against him,
-
-and I think it just gave him
-a very genuine kind of sense.
-
-Again, these are very difficult effects.
-
-It's amazing that it all comes together
-and it just looks beautiful,
-
-when you consider the hours
-and sweat and blood
-
-that actually went into
-every little smoke particle here.
-
-Made no less difficult
-by your incredible perfectionism
-
-during the course of production there.
-But it all worked out well.
-
-Fabulous details,
-blowing out the windows.
-
-The gag of when the dragon
-actually pops out the window
-
-we tried in a few different places.
-It's so fun.
-
-There are times you find even,
-as dramatic as a moment is,
-
-you still need to have
-a little bit of comic relief,
-
-and the audience is almost thankful
-because they're enjoying the moment,
-
-as sentimental as it is,
-but they don't mind...
-
-It's a treacle cutter. It's a treacle cutter,
-
-and it's also
-a little bit of a stress release.
-
-I always felt like we should have left that
-a little bit longer
-
-before she spoke then. Yeah.
-
-It still bugs me to this day.
-She just talks just a moment too soon.
-
-Yeah, like she was unconscious
-while she was on the ground.
-
-I know.
-
-I know.
-
-Good fun here at the end.
-
-Yeah, Smash Mouth did a great job
-of redoing this song.
-
-The song we put in very early on,
-
-'cause just thematically,
-it was just so perfect
-
-for what was going on with Shrek,
-
-and then Smash Mouth
-were nice enough to redo it for us.
-
-Pinocchio's dance.
-
-Pinocchio's dance! That's our editor, Sim.
-
-Sim did this dance in his chair
-and inspired everyone.
-
-We all just fell over laughing.
-
-Another little note,
-the movie ended just about here,
-
-when they rode off into the sunset
-and the book closed,
-
-and it was very sweet
-and it was a happy ending,
-
-but it wasn't a big laugh,
-
-so cutting back to Donkey
-starting to do the <i>I'm a Believer</i>
-
-as if it was after the wedding,
-at the reception, in karaoke style,
-
-really just brought the movie,
-you know, out the door laughing.
-
-It was amazing
-having both Jeffrey Katzenberg
-
-and Steven Spielberg
-to give us advice throughout this,
-
-and Jeffrey was definitely a big advocate
-of going out with a big laugh.
-
-And I have to admit,
-I think we all questioned having to do it,
-
-and it worked incredibly well.
-It was a pretty brilliant stroke.
-
-And to be able to see
-the fairytale characters again, too,
-
-'cause we'd seen them all
-in the beginning.
-
-We had toyed with using them more.
-Early on we thought maybe
-
-they helped out with the rescue
-of Fiona, that sort of thing,
-
-but here we got a sense of them
-all playing together and dancing.
-
-Right when we were about
-to finish the movie,
-
-it's amazing that we decided to do this,
-and Aron figured out that we could do it,
-
-and they were okay with spending
-the money to do it, which was fantastic.
-
-Once again, a record time, though,
-that we put the sequence together.
-
-And Eddie, we had to go and ask him,
-
-"Can you please
-sing badly for us again?"
-
-He sounds good, though.
-
-He does,
-but he actually has an amazing voice,
-
-and to get him to sing like Donkey,
-I think, was kind of challenging for him.
-
-And then we go to the storybook ending.
-
-"And they lived ugly ever after."
-
-So if you're still listening,
-
-you've made it all the way through
-to the end of the movie,
-
-and believe me,
-it was actually a lot more fun making it
-
-than it was listening to us
-talking about making it.
-
-Next, here we have a very long list
-of all the people
-
-we have to be very, very grateful to
-for really making this movie...
-
-Without any one of them,
-none of this would have been possible.
-
-They also did make it fun. Yeah.
-
-It was an incredibly fun and heartfelt... It was a lot of fun.
-
-Wonderful, warm group of people.
-
-I think everyone realizes
-what a special experience it was.
-
-In fact, I'm sure most of the people
-listening to this commentary
-
-will probably be the people
-that worked on the movie,
-
-so as you see your name come up,
-
-please put a "thank you"
-before your name.
-
-And "applause" afterwards.
-
-'Cause we really do
-want to thank everyone
-
-for just making this experience
-so wonderful for us,
-
-and just producing a movie
-that I think we're very proud of.
-
+The End.
