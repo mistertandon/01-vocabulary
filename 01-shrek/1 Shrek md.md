@@ -1,3251 +1,4474 @@
-1Había una vez
-una princesa hermosa.
+Hi, I'm Aron Warner.
+I'm one of the producers on the film.
 
-Pero fue víctima
-de un hechizo espantoso...
+Hi, I'm Vicky Jenson.
+I'm one of the directors on the film.
 
-que sólo se podía romper
-con el primer beso de amor.
+And I'm Andrew Adamson,
+the other director on the film.
 
-Estaba encerrada en un castillo...
+If you're watching this,
+you're probably one of those people
 
-protegida por un dragón terrible,
-que arrojaba fuego.
+that tikes people sitting behind you
+in the movies talking,
 
-Muchos caballeros valientes
-habían tratado...
+so it's your own fault
+that you have to listen to us
 
-de sacarla de esta prisión...
+for the next hour and a half. We won't kick your chair, though.
 
-pero ninguno había triunfado.
+Now, this is actually the opening
+of the movie,
 
-Ella esperaba en el cuarto
-más elevado de la torre más alta...
+which is usually the bit at the start,
 
-a su verdadero amor y
-al primer beso de amor verdadero.
+and we actually were looking for
+a very classic kind of fairytale opening,
 
-Como si eso fuera a pasar.
+and we actually ended up...
+We have these brainstorming sessions
 
-¡Qué clase de--
+where we all sit around a table
+and try and come up with ideas,
 
-# Somebody once told me
-the world is gonna roll me #
+and we came to this conclusion
+of wanting to open, like,
 
-# I ain't the sharpest tool
-in the shed #
+a traditional fairytale
+and having a storybook,
 
-# She was lookin'kind of dumb
-with her finger and her thumb #
+and I think it was Aron...
 
-# In the shape of an "L"
-on her forehead #
+I think all the ideas in this movie
+were Aron's.
 
-# The years start comin'
-and they don't stop comin'#
+Pretty much.
 
-# Fed to the rules
-and I hit the ground runnin'#
+I love the graphics of that book.
+Julia Woolf was one of our artists
 
-# Didn't make sense
-not to live for fun #
+in the department,
+and she was just wonderful.
 
-# Your brain gets smart
-but your head gets dumb #
+I love that book.
 
-# So much to do
-So much to see #
+At one point we thought about having
+the DreamWorks logo
 
-# So what's wrong with
-takin'the backstreets #
+on the front of the outhouse,
 
-# You'll never know
-if you don't go #
+'cause, actually,
+that half-moon just seems so perfect,
 
-# You'll never shine
-if you don't glow #
+but, well, we got voted down.
 
-# Hey, now
-You're an all-star #
+I still like the idea.
+See, we're kind of close.
 
-# Get your game on, go play #
+And this is actually...
 
-# Hey, now, you're a rock star
-Get the show on, get paid #
+This whole sequence was actually
+quite an effects-intensive sequence.
 
-# And all that
-glitters is gold #
+It had some of, actually,
+the most difficult things
 
-# Only shootin'stars
-break the mold #
+right at the start of the movie.
+Mud, water.
 
-# It's a cool place
-and they say it gets colder #
+Yeah, I think in the additional material,
 
-# You're bundled up now
-but wait till you get older #
+you'll probably see some
+of the effects guys
 
-# But the meteor men
-beg to differ #
+wearing a yellow sticker,
+pouring mud over each other,
 
-# Judging by the hole
-in the satellite picture #
+just to see how it looks
+when you take a shower in mud.
 
-# The ice we skate
-is gettin'pretty thin #
+Actually, all the difficult things, mud,
+water and nudity, were in this sequence.
 
-# The water's getting warm
-so you might as well swim #
+Yes. His bits and pieces
+are nicely hidden, <i>à la</i> Austin Powers.
 
-# My world's on fire
-How 'bout yours #
+We also had a number
+of our effects artists
 
-# That's the way I like it and I'll never get bored #
-CUIDADO - OGRO
+jumping into a swimming pool,
+which was a lot of fun to watch.
 
-# Hey, now, you're an all-star #
-SE BUSCAN OGROS - RECOMPENSA
+But they didn't fart, though. They didn't poot.
 
-# Get your game on, go play #
+I gotta say,
+when we screened this film in Cannes,
 
-# Hey, now, you're a rock star
-Get the show on, get paid #
+in competition
+at the Cannes film festival,
 
-# And all that
-glitters is gold #
+as soon as Shrek jumped in the water
+and farted,
 
-# Only shootin'stars
-break the mold #
+I know I put my head in my hands.
+I think we all did.
 
-# Hey, now
-You're an all-star #
+Here we are sitting in tuxedoes
+and evening gowns,
 
-# Get your game on, go play #
+wearing borrowed jewels,
 
-# Hey, now, you're a rock star
-Get the show on, get paid #
+and everyone's watching Shrek
+take a poot in the water.
 
-# And all that
-glitters is gold #
+Did you ever give those back,
+by the way? The jewels?
 
-# Only shootin'stars
-break the mold #
+No one lent me any jewels. Yeah, me neither.
 
-Está ahí dentro.
+I had a bodyguard watching me,
 
-¡Vamos por él!
+so I had to get rid of the jewels
+at the end of the night.
 
-Alto.
-¿Saben lo que les puede hacer?
+They were a little gaudy, anyway.
 
-Sí. Va a triturarles
-los huesos para hacer pan.
+Took the outfit into, kind of,
+an Eva Gabor direction.
 
-De hecho,
-eso es lo que haría un gigante.
+I love the eyeball scene.
+It was fun, actually. This was important,
 
-Verán, los ogros...
+to establish Shrek not only as an ogre
+who didn't want anybody
 
-son mucho peores. Los ogros hacen
-trajes de la piel que te arrancan.
+hanging around his swamp,
 
-Te rebanan el hígado...
+and eating gross stuff,
+but you had to like him,
 
-te exprimen la jalea de los ojos.
+so it was fun to watch him
+just have fun with his day.
 
-La verdad,
-sabe rica en pan tostado.
+I think, actually, this was one
 
-¡Atrás! ¡Atrás, bestia!
-¡Atrás! Te lo advierto.
+of the more difficult sequences
+because of that.
 
-Cómo no.
+We wanted to say so much
+and just really do it in a music sequence
 
-Ésta es la parte
-en la que salen corriendo.
+where we weren't really stopping
+to explain things too much,
 
-¡Y no regresen!
+but we wanted to set up the fact
+that Shrek is a fun-loving ogre
 
-"Se buscan.
-Criaturas de Cuentos de Hadas."
+when he's kind of living by himself.
 
-Ésta está llena.
-¡Llévatela!
+Remember, we used to kick out
+all kinds of characters from this swamp,
 
-Jiaioo
-Prisioneros enanos somos
+because Shrek, he doesn't like anybody.
 
-¡Dame eso!
+He was scaring away
+Little Red Riding Hood
 
-¡No más vuelos!
+and Mary and her little lamb.
 
-20 piezas de plata por la bruja.
-¡El siguiente!
+That's me. "All right, let's get it."
+That's Sim. He's our editor.
 
-Malditas 20 piezas.
+We have voices popping up
+all over the place from our crew.
 
-- ¡Siéntense ahí!
-- ¡Silencio!
+Those ogre hunters were
+so hard to light, weren't they?
 
-¡Esta jaula está muy chica!
+Now, this from Mike Myers
+was actually a lot of improv.
 
-No me entregues. No volveré
-a ser terco. Voy a cambiar.
+He was really, really great.
 
-¡Cállate!
+We'd give him an idea
+of where we were heading,
 
-¡El siguiente!
+and we wanted Shrek to come up
+with all these different gross things,
 
-- ¿Qué tienes?
-- Esta marioneta de madera.
+and we just gave him a list
+of 50 or so gross things
 
-Yo no soy una marioneta.
-Soy un niño de verdad.
+that everybody had come up with,
 
-5 chelines por el juguete poseído.
-Llévenselo.
+and he took those
+and then just added to that.
 
-¡Papá, no me hagas esto!
+Added 50 more. We had to edit it down.
 
-El siguiente.
-¿Qué traes?
+There were some hilarious things
+in there.
 
-Le traigo un burro que habla.
+Here's the very technically-difficult spit. Yes, we fought a lot for the spit.
 
-Bueno. Eso bien vale 10 chelines,
-si lo puedes demostrar.
+It's just the right amount of clumpiness.
 
-Habla, animalito.
+Andrew's right, though.
+This sequence was really difficult
 
-¿Y bien?
+in terms of getting across who Shrek is.
 
-Sólo está nervioso.
-Normalmente habla sin parar.
+Does he like his life?
+Does he not like his life?
 
-¡Habla, tarado!
+Does he like people?
+Does he not like people?
 
-Ya oí suficiente.
-¡Guardias!
+And I think we came up
+with a really good balance.
 
-¡No! Sí habla. ¡De veras!
+Also, the generic characters.
 
-Me encanta hablar. Soy la cosa
-más habladora que haya visto jamás.
+We had originally designed
+these characters
 
-Llévensela de aquí.
+to be more background elements.
 
-¡Se lo juro!
-¡Suéltenme!
+We hadn't had any sort of
+principal foreground humans
 
-¡Sabe hablar!
+other than Princess Fiona. Right.
 
-Oye, puedo volar.
+But when we reworked the sequence
 
-- Puede volar.
-- ¡Puede volar!
+and wanted to have
+these ogre hunters in there,
 
-Y sabe hablar.
+we had to really do a lot of work
+on the characters,
 
-Sí. Soy el burro volador que habla.
-Habrás visto un pájaro mosca.
+to make them be able to stand up
+to that kind of inspection.
 
-Quizá un pájaro burro. ¡Pero a que
-nunca has visto un burro volar!
+This sequence is one of those examples
 
-¡Agárrenlo!
+of how many times
+we storyboarded ideas,
 
-¡Tras él!
-¡Se está escapando!
+trying to find the right way to go.
 
-¡Atrápenlo!
+Back in the days
+when Shrek wanted to be a knight,
 
-¡Por aquí! ¡Corran!
+that was one of our original stories,
+he rescued Donkey from a witch.
 
-¡Oye, tú! ¡Ogro!
+He found her caravan.
 
-¿Sí?
+We had all this backstory
+on how Donkey could talk.
 
-Por orden de Lord Farquaad...
+And the witch just came down
+to being this little old lady here.
 
-tengo autorización
-de arrestarlos a ambos...
+These fairytale creatures
+provided a lot of fun for us.
 
-y transportarlos a una nueva
-instalación designada de vivienda.
+When we sort of came up with them
+for the story,
 
-No me digas.
-¿Tú y qué ejército?
+it was really a matter
+of just sitting down in a room,
 
-¿Puedo decirte algo?
+again, doing those
+brainstorming sessions
 
-Estuviste formidable allá atrás.
-¡Increíble!
+we were talking about before,
+where a bunch of us would sit around,
 
-¿Me estás hablando...
+story artists, producers, writers,
+directors and so on,
 
-a mí?
+and just say, "Okay, everyone come up
+with three funny ideas"
 
-Sí, a ti. Estuviste genial.
-Esos guardias se creían...
+"for fairytale creatures,"
 
-la gran maravilla.
+and this is one of those sequences
+that had a lot of those ideas in it.
 
-Llegas y ¡zas! se tropiezan
-como bebés en el bosque.
+The voice of the captain there
+is one of these guys
 
-Me dio gusto ver eso.
+that's just worked on everything,
 
-Fantástico.
+all kinds of animated cartoons,
+usually on TV.
 
-Qué gusto ser libre.
+Jim Cummings. He was just great.
 
-¿Por qué no vas a celebrar
-tu libertad con tus propios amigos?
+Our story guys
+make a lot of cameo appearances.
 
-Pero, ah...
+That was Cody as Pinocchio
 
-yo no tengo amigos. Y no voy
-a andar en el bosque yo solo.
+and Chris Miller as his dad,
+as Geppetto, selling Pinocchio.
 
-¡Ya sé!
-¡Me voy a quedar contigo!
+This was so funny.
+That actress was great.
 
-Eres una máquina verde arrasadora.
-¡Vamos a asustar a todos!
+And those three pigs back there
+are Cody as well.
 
-¡Cielos! ¡Eso sí fue aterrador!
+They're all Cody, yeah. Yeah.
 
-Y si eso no funciona,
-tu aliento hará que huyan.
+Eddie was so amazing.
 
-Necesitas unas mentas,
-¡tu aliento apesta!
+This is the first time we hear him
+really speak in the movie,
 
-Casi me quemas los pelos nasales.
+and he was so funny.
+The way he could just take any line
 
-Justo como la vez que...
+and present it in a way
+that we never expected,
 
-comí moras podridas.
+but it was always funnier
+than we expected.
 
-Me salieron gases fuertes
-de la cola.
+He was incredible.
 
-¿Por qué me estás siguiendo?
+You'd kind of go
+and you'd pitch him a sequence,
 
-Te voy a decir por qué.
+you'd show him the pages and so on.
+He'd read it very quietly, just to himself,
 
-Porque estoy solo
+and then he'd just step in front
+of the microphone and just...
 
-No hay nadie más aquí
-Aparte de mí
+Bam! He's just instantly this donkey.
 
-Todos mis problemas
-han desaparecido
+Turn it on completely. Just completely turn it on.
 
-Nadie más se burlará de mí
+Come out with stuff
+we'd never, ever imagined.
 
-Pero tienes que tener amigos
+Just take a single-beat joke
+and turn it into a three-beat joke.
 
-¡Deja de cantar!
+Sequences got longer
+because his jokes were so good.
 
-Con razón no tienes amigos.
+That's our <i>Star Wars</i> shot. Yeah.
 
-Sólo un gran amigo puede ser
-tan cruelmente sincero.
+And that was our butt shot. You always have to have a butt shot.
 
-Mírame, burrito.
-Mírame. ¿Qué soy?
+"Little donkey."
+What did Mike always say?
 
-¿Muy alto?
+"Wee Donkey." "Sweet little Donkey."
 
-¡No, soy un ogro! De los de "agarra
-tu antorcha y tu horquilla".
+"Aye." The accent.
 
-¿No te molesta?
+Yes. This is the Scottish ogre,
+of course.
 
-No.
+We did experiment with a number
+of different voices for Shrek.
 
-¿De veras?
+He was Scottish, then he was Canadian.
 
-De veras, de veras.
+Canadian... He went back to Scottish.
 
-Me caes bien.
-¿Cómo te llamas?
+Kind of a south country kind of guy
+for a while.
 
-Shrek.
+The thing with Mike is, he's somebody
+who can really create a character,
 
-¿Shrek?
-¿Sabes qué me gusta de ti, Shrek?
+and I think this was
+particularly good for him
 
-Tu estilo de decir "No me importa
-lo que piensen de mí".
+'cause he got to create a character
 
-Eso me gusta.
-Te respeto, Shrek.
+without having to go through
+five hours of makeup every day.
 
-Mira eso. ¿A quién le puede
-gustar vivir en un lugar así?
+But we went in with him
+and did what we usually do with actors,
 
-Ésa es mi casa.
+which is kind of record the character
+with their real voice.
 
-¡Y es preciosa!
-Simplemente hermosa.
+Our characters
+are already very caricatured,
 
-Eres un gran decorador. Has hecho
-mucho con un presupuesto bajo.
+somewhat cartoonish, and you don't
+want the voices not to seem real,
 
-Me gusta esa roca.
-Es una roca bonita.
+so that's kind of what we did with Mike.
 
-ALÉJESE
-CUIDADO - OGRO
+We just got him to use his real voice,
+but then when he saw it,
 
-No recibes muchas visitas,
-¿verdad?
+he really sort of thought
+he could give it something more
 
-Me gusta tener vida privada.
+and wanted to go back into the studio,
+and he very generously gave
 
-A mí también. Odio cuando tienes
-a alguien encima...
+a couple of weeks
+just to go into the studio
 
-y le lanzas una indirecta
-y no se va...
+and develop the character.
 
-y hay un silencio embarazoso...
+And we had previously had a scene
+of him reading a letter to his father,
 
-- ¿Puedo quedarme contigo?
-- ¿Qué?
+and Mike had automatically done that
+in a Scottish voice,
 
-¿Puedo quedarme contigo...
-por favor?
+and we'd responded to it
 
-Claro.
+very well at the time. Yeah, that's right.
 
-- ¿Lo dices en serio?
-- No.
+So we kind of went back to that.
 
-¡No puedo regresar! ¡No sabes
-lo que es ser un fenómeno!
+We ended up with this idea
+that Shrek's parents were Scottish
 
-Bueno, quizá sí sepas.
+and they moved to Duloc,
+and he was brought up there,
 
-¡Pero por eso tenemos que unirnos!
-¡Déjame quedarme! ¡Por favor!
+so he's kind of, like,
+second-generation Dulocian.
 
-Está bien. Está bien.
-Pero sólo una noche.
+Back in the days, again,
+when Shrek used to want to be a knight,
 
-¡Gracias!
+there was a sequence
+where he was trying to tell his parents
 
-¡Va a ser divertido! Nos vamos
-a contar nuestras aventuras...
+that he wanted to go out in the world
+and become a knight,
 
-y en la mañana, ¡haré waffles!
+and his father was saying,
+"Ogres can't be knights!"
 
-¿Dónde voy a dormir?
+And at that point
+it was Andrew and me as the parents!
 
-¡Afuera!
+Doing atrocious Scottish accents.
 
-Bueno, está bien. Digo, yo no
-te conozco, tú no me conoces...
+And it was welcome,
 
-así que afuera es lo mejor.
+because it connected Mike
+to the character of Shrek
 
-Ya me voy.
+and gave him the freedom to do
+what he wanted to do with the part,
 
-Buenas noches.
+which I think really shows.
 
-Me gusta el exterior.
-Soy un burro. Nací afuera.
+This was one
+of the first sequences we animated.
 
-Estaré sentado yo solo, afuera.
-Yo solo, afuera.
+It was very early. It was actually
+the first really naturalistic sequence
 
-Estoy solo
+that we did, too,
+as far as the forest and the trees
 
-No hay nadie más aquí
-Aparte de mí
+and all that kind of thing.
 
-Te dije que te quedaras afuera.
+We actually went backwards
+and forwards.
 
-Estoy afuera.
+At one point it looked too natural,
+and we wanted to keep it stylized,
 
-Dista mucho de ser la granja,
-pero ¿qué otra opción tenemos?
+keep it like a fairytale storybook
+come to life.
 
-No estoy en casa,
-pero me voy a acomodar fácilmente.
+So the grass is more green
+than you'd expect.
 
-- Qué hermosa cama.
-- ¡Te agarré!
+Didn't we change the order
+of this sequence a number of times?
 
-Encontré un poco de queso.
+No, it actually was Ogres and Onions
+that followed this one,
 
-Del más oloroso.
+'cause this is where they meet,
+and then Ogres and Onions,
 
-- ¿Eres tú, Gorder?
-- ¿Cómo supiste?
+where they're walking through
+the cornfield
 
-¡Ya basta!
-¿Qué están haciendo en mi casa?
+and Shrek is describing what ogres are
 
-No, no, no.
-¡Bajen a la muerta de la mesa!
+and how similar they are to onions,
+used to follow this,
 
-¿Dónde la ponemos?
-La cama está ocupada.
+but it felt like they became friends
+very quickly,
 
-¿Qué?
+and we picked that one up
+and moved that one till after Duloc.
 
-¡Vivo en un pantano! ¡Pongo
-letreros! ¡Soy un ogro aterrador!
+We also felt like
+we wanted to make sure
 
-¿Qué necesito hacer para tener
-un poco de vida privada?
+we introduced Donkey
+as early as possible.
 
-Ay, no.
+We changed the order.
 
-Ay, no.
+We had a kind of repetition before
+where Shrek was...
 
-- ¡Basta!
-- ¡No me empujes!
+We were kind of saying who Shrek was,
+and then later on he ran into Donkey,
 
-¿Qué están haciendo
-en mi ciénaga?
+and this scene kind of
+did the same thing,
 
-Bueno, váyanse de aquí.
-¡Todos...
+which really kind of explained
+who Shrek was
 
-muévanse! ¡Vámonos!
-¡Hapaya!¡Hapaya!
+and what his issues were
+about people rejecting him
 
-No, no, ahí no. ¡Ahí no!
+and him rejecting them first.
 
-No me mires a mí,
-yo no los invité.
+It was actually a great moment
+that we had
 
-Cielos, nadie nos invitó.
+when we realized
+that we could put this scene here
 
-- ¿Qué?
-- Nos forzaron a venir aquí.
+and really get across the point
+of who he was
 
-- ¿Quién los forzó?
-- Lord Farquaad.
+and introduce Donkey earlier. Yeah.
 
-Sopló y sopló y-- firmó
-un apercibimiento de desalojo.
+I remember we all jumped out
+of the bathtub
 
-Está bien.
+and ran through the streets naked
+yelling, "Eureka!"
 
-¿Quién sabe
-dónde está el tal Farquaad?
+It was quite a moment
+for everybody involved, actually.
 
-¡Yo! ¡Yo sé dónde está!
+I don't remember it
+that way exactly, but...
 
-¿Alguien más sabe
-dónde lo puedo encontrar?
+Nothing but a shower cap.
+This sequence is fun.
 
-- ¿Nadie?
-- ¡Yo! ¡Yo!
+It has this line
+where Donkey runs around on his chair
 
-- ¿Nadie en absoluto?
-- ¡Escógeme a mí!
+and talks about what they're gonna do
+in the morning,
 
-¡Yo sé! ¡Yo sé! ¡Yo, yo!
+and it's one of those things
+that kids have picked up.
 
-Está bien, bueno.
+Oh, my God. I've heard so many kids
+say that that's their favorite line.
 
-¡Atención, todos!
+"In the morning
+I'm gonna make waffles."
 
-¡Criaturas de cuentos de hadas!
+In Mexico, "I'm gonna make tamales."
+In France, "I'm gonna make crepes."
 
-¡No se pongan muy cómodos!
+Everybody loves that line.
 
-¡Ya abusaron oficialmente
-de mi hospitalidad!
+In England,
+it's probably bangers and mash.
 
-¡Voy a ir a ver al tal Farquaad
-ahora mismo y a hacer...
+It's probably a good point to mention
+the amazing facial animation on <i>Shrek.</i>
 
-que los saquen de aquí
-y se los lleven a sus tierras!
+We were really lucky
+to get the whole <i>Antz</i> crew
 
-Tú.
+after their experience on that film
+and coming as far as they did,
 
-Tú vas a venir conmigo.
+not only with the technology
+of the facial system,
 
-Eso es lo que yo quería oír.
+but the amazing artistry,
+and having to push it further
 
-¡Shreky Burro, dos amigos bravos,
-se van de aventura a la ciudad!
+now that we had, sort of,
+more human faces.
 
-¡Me encanta!
+Shrek, certainly, and of course, Fiona.
 
-# De viaje otra vez #
+It was just stunning how warm
+and how subtle the acting can be.
 
-Canta conmigo, Shrek
+I love that little bit of animation
+of Donkey.
 
-# Me muero por irme
-de viaje otra vez #
+That's one of the cutest little pieces. "Sweet Donkey."
 
-¿Qué te dije de cantar?
+But no, Vicky's right. They developed,
+really, a very advanced muscular system
 
-- ¿Puedo silbar?
-- No.
+for the faces that really simulated
+anatomically-correct muscles,
 
-- ¿Puedo tararear?
-- Está bien. Tararea.
+so that they could actually do
+very subtle expressions,
 
-¡Ya basta!
-Está listo para hablar.
+and eyes and eyebrows.
 
-Corre, corre a toda velocidad.
+You'll notice when the creatures frown,
+when the characters frown,
 
-¡Soy el Hombre de jengibre,
-no me puedes agarrar!
+there's the little frown lines
+between the eyes.
 
-¡Eres un monstruo!
+There's wrinkles around the eyes.
 
-¡Yo no soy el monstruo,
-sino tú!
+When their mouths open, their lips
+actually stick together very slightly.
 
-¡Tú y todos los tipejos
-de los cuentos de hadas...
+It's a very advanced system.
 
-que envenenan mi mundo!
+They're all actors.
 
-¿Dónde están los demás?
+Yeah, exactly. And they're tremendous actors,
 
-¡Cómeme!
+and they did an incredible job
 
-¡He tratado de ser justo con Uds.
-pero ya se me acabó la paciencia!
+of getting into the heart and soul
+of the characters themselves.
 
-Si no me dices, te...
+This is a good point to mention
+the gorgeous music
 
-¡No, mis botones de "gomitas", no!
+that Harry Gregson-Williams
+and John Powell did on this film.
 
-Bueno.
-¿Quién los está ocultando?
+This theme of Shrek's, I just love it.
 
-Bueno, te voy a decir.
-¿Conoces al Hombre de Pan?
+Same with the opening of the film,
+which is actually Fiona's theme,
 
-- ¿El Hombre de Pan?
-- El Hombre de Pan.
+'cause, as we're flipping the storybook,
 
-Sí, conozco al Hombre de Pan.
-¿El que vive en la Calle Drury?
+it feels like we're gonna tell the story
+of a very classic fairytale,
 
-Ella está casada
-con el Hombre de Pan.
+and it's actually Fiona's theme
+we're hearing.
 
-- ¿El Hombre de Pan?
-- ¡El Hombre de Pan!
+But this one's just beautiful.
+It's sweet, but it's not sentimental.
 
-Ella está casada
-con el Hombre de Pan.
+Actually, back there was one
+of the most redone and redone effects,
 
-Milord, lo encontramos.
+which was Shrek pulling the earwax out.
 
-¿Qué esperan? ¡Tráiganlo!
+Right.
 
-Espejo Mágico...
+I wanted to have the level of grossness
+without going too far.
 
-¡No le digas nada!
+We had a couple
+of really over-the-edge earwax shots.
 
-Buenas noches.
+Yes, we did.
 
-Espejo, espejo, en la pared...
+Actually, Fiona's theme,
+mentioning that,
 
-¿no es éste el reino
-más perfecto de todos?
+was at one stage Shrek's theme.
 
-Bueno, técnicamente,
-usted no es un rey.
+Harry and John were working with it,
 
-Ah, Thelonius.
+and they played it to us,
+and we were like, "You know what?"
 
-¿Decías?
+"It just seems a little too traditional
+for Shrek."
 
-Quise decir que todavía
-no es un rey.
+And so I think they were
+a little bit downhearted about that,
 
-Pero se puede convertir en rey
-si se casa con una princesa.
+'cause they really liked the theme,
+and then the next time we saw them,
 
-Continúa.
+they played it again and said,
+"Welcome to Fiona's theme!"
 
-Así que, nada más siéntese
-y relájese, milord...
+Yeah, and it worked. It worked great. These were some classic voices.
 
-porque es hora de que conozca
-a las solteras disponibles de hoy.
+The voice of Simon Smith,
 
-¡Y aquí las tiene!
+our layout supervisor,
+as one of the mice.
 
-La soltera No. 1
-es una reclusa...
+That was Chris Knights,
+the assistant editor.
 
-sujeta a abuso mental
-en un reino lejano.
+And Mike Myers
+as one of the mice as well.
 
-Le gustan el sushi y los jacuzzis.
+This scene really changed things for us
+when we figured out
 
-Le gusta cocinar y limpiar
-los cuartos de sus hermanas malas.
+that if we brought
+all the fairytale creatures into his land
 
-Por favor dé la bienvenida a
-¡Cenicienta!
+and got him out that way,
 
-La soltera No. 2 es una chica
-de la tierra de la fantasía.
+that it would be much more fun
+and successful
 
-Aunque vive con 7 hombres,
-es muy recatada.
+than the other methods we had.
 
-Bese sus labios muertos, helados,
-y verá lo electrizante que es.
+At one point we had him burnt out
+of his house.
 
-Venga un aplauso para
-¡Blanca Nieves!
+That was! That was Aron!
 
-Y la última en orden,
-pero no en importancia...
+At one stage we used to have Shrek
+burnt out of his house.
 
-la soltera No. 3
-es una pelirroja...
+Lord Farquaad was trying
+to beautify the kingdom,
 
-¡protegida por un dragón
-y un foso de lava!
+and he sent a bunch of soldiers
+to burn Shrek out of his house,
 
-Pero no deje que eso le afecte.
-Le gustan las piñas coladas...
+which was very dramatic,
+but not particularly funny.
 
-y que la pille la lluvia.
+So when we developed
+these 2,000 cute fairytale characters
 
-Rescátela y es suya,
-¡la princesa Fiona!
+to be Shrek's motivation for leaving,
 
-¿Entonces qué escoge?
-¿La soltera No. 1 ?
+it just opened up
+a huge amount of comic fodder,
 
-¿La soltera No. 2?
+we'd like to call it. I love that gag of the witches landing,
 
-¿O la soltera No. 3?
+and the elves helping
+like airport attendants.
 
-Dos, tres, uno. Tres.
+So, back there you should notice
+that there were only two bears.
 
-Escoja la No. 3, milord.
+There was just Papa Bear
+and Baby Bear.
 
-¡Está bien! ¡Está bien!
-¡La número tres!
+You have to keep an eye out. Just remember that.
 
-Lord Farquaad, usted ha escogido
-a la princesa Fiona.
+We'll bring that up later on. Most people get it.
 
-La princesa Fiona.
+I'm telling you,
+even little kids have told me.
 
-Es perfecta.
+This was a scene
+where I was saying to the directors,
 
-Nada más tengo que encontrar
-a alguien...
+"This is really expensive.
+We can't do all these creatures."
 
-- Hay algo que pasa de noche...
-- Lo haré.
+And they were telling me,
+"We'll do it in the dark
 
-- Sí, pero después del ocaso...
-- ¡Silencio!
+"and you can just see their eyes." Sure! I don't think that was us that said that.
 
-Convertiré a la princesa Fiona
-en mi reina...
+I don't know who it was,
+but I'm not that naive, okay?
 
-¡y DuLoc tendrá,
-finalmente, el rey perfecto!
+It was probably the most expensive,
+in terms of render time,
 
-Capitán,
-reúna a sus mejores hombres.
+with all of these characters, all the fire,
+all the fur, the leaves, the moonlight.
 
-¡Vamos a hacer un torneo!
+Something like nine hours
+to render one frame.
 
-ESTACIONAMIENTO
-SECCIÓN LANZAROTE
+People may be asking,
+"Why are the pigs German?"
 
-Ahí está. Eso es DuLoc.
-Te dije que lo iba a encontrar.
+And we'd have to answer,
+"We have no idea."
 
-Entonces...
+We have no idea. It was funnier.
 
-ése debe ser
-el castillo de Lord Farquaad.
+Except "huffed and puffed"
+just sounded funnier.
 
-Sí, ése es el lugar.
+Than "huffed and puffed."
 
-¿Crees que esté compensando
-por alguna deficiencia?
+Eddie was great here. Yeah.
 
-¡Oye, espera!
-¡Espérame, Shrek!
+Here's a loop line.
 
-¡Corre, cariño!
-¡Vamos a llegar tarde!
+The loop line in there
+always stands out to me.
 
-¡Oye! ¡Tú!
+Right here.
+"Attention, all fairytale creatures."
 
-Espera un segundo.
-Mira, no te voy a comer.
+That was recorded in a car, wasn't it?
+That one "fairytale creatures"?
 
-Yo sólo...
-Yo sólo...
+I think we went back
+and picked it up again.
 
-Qué silencio hay aquí.
+For a while there... The car didn't work.
 
-Demasiado silencio.
+That's right. Jeffrey went to New York
+with a little DAT recorder
 
-LA ANTIGUA
-TIENDA DE RECUERDOS
+and recorded it
+in the back of a car with Mike,
 
-¿Dónde están todos?
+but unfortunately the driver had forgotten
+to turn off the radio.
 
-¡Mira esto!
+The radio was on, so we had to redo it.
 
-Bienvenido a DuLoc
-Un pueblo perfecto
+It still stands out to me.
+I know it blends, but I still hear it.
 
-Tenemos ciertas reglas
-Se las vamos a decir
+And Jeffrey's
+gonna keep his day job, I think.
 
-Compórtese, haga cola
-y nos llevaremos bien
+I love the flower cape. I don't know.
 
-DuLoc es un lugar perfecto
+It's just one
+of those classic fairytale gags
 
-Por favor, cuide a su burro
-Vista bien, límpiese-- la cara
+that, you know, the hero gets draped
+by flowers from the birds,
 
-DuLoc es
+but Shrek doesn't like it.
 
-DuLoc es un lugar perfecto
+At one point we had a lot more
+of Donkey singing in the movie,
 
-BIENVENIDO A DULOC
+singing song after song after song,
 
-¡Caramba!
+and I guess when even we found
+it annoying, we cut back a little bit.
 
-- Veamos eso otra vez.
-- No.
+It was hard for Eddie to sing this badly.
+We had to specifically say,
 
-¡Caballeros valientes!
+"Can you sing this worse,
+please, Eddie?"
 
-¡Uds., son los mejores
-y más brillantes de esta tierra!
+This intro to Farquaad was so much fun.
 
-Hoy, uno de ustedes demostrará,,,
+You know, design-wise, we always
+kept Farquaad's castle very angular.
 
-Te estás ganando una nalgada.
+See how the glass has got angles to it?
+We didn't want anything soft or round,
 
-Perdón.
+'cause that was sort of Shrek's thing,
+everything organic.
 
-El campeón tendrá el honor--
-no, no, el privilegio...
+This was fun. In storyboard,
 
-de ir y rescatar...
+it was pitched
+that Farquaad was introduced
 
-a la hermosa princesa Fiona...
+kind of like Darth Vader
+stomping through the Death Star.
 
-de la torre ardiente del dragón.
+I've gotta say, when Conrad
+first pitched this sequence,
 
-Si, por alguna razón,
-el ganador no tiene éxito...
+I don't ever remember laughing so hard.
 
-el segundo finalista
-ocupará su lugar.
+I saw tears coming out of Aron's eyes.
 
-Y así, en adelante.
+Conrad Vernon,
+that's the storyboard artist,
 
-Quizá algunos de Uds. mueran...
+and the voice of gingerbread. And the voice of gingerbread man.
 
-pero es un sacrificio
-que estoy dispuesto a hacer.
+You can buy the toy
+and hear Conrad saying,
 
-APLAUSO
+"Not my buttons!" Buttons, not buns.
 
-¡Que empiece el torneo!
+We did discover...
+This was the first sequence
 
-¿Qué es eso?
+we animated with John Lithgow, right? Yes.
 
-¡Qué espanto!
+We couldn't get his big voice to
+feel right coming out of that little guy,
 
-Usted no es muy amable.
+and we had to go back a few times
+to figure out how to do it,
 
-Sólo es un burro.
+make sure that his breaths
+were really big,
 
-Cierto. ¡Caballeros!
-Cambio de plan.
+and that he moved
+to support that big voice.
 
-Ay, oigan, por favor.
+Yeah, threw the head around. He could launch, in the body,
 
-Esperen un segundo.
+to launch that huge voice
+out of that little frame.
 
-¿No podemos arreglar esto
-mientras nos tomamos una cerveza?
+The sound guys were always
+grabbing the knobs
 
-¿No?
+when John would go into the speech,
 
-Bueno, muy bien.
+'cause his voice could go
+from a really insidious whisper
 
-¡Peleen!
+to this booming, Shakespearean,
+addressing voice. It was incredible.
 
-# I don't give a damn
-about my reputation #
+I love the facial animation
+in this sequence, too.
 
-# You're living in the past
-It's a new generation #
+You really get to see the wrinkles in
+the forehead and how well that works,
 
-# A girl can do
-what she wants to do #
+and then just the expressions that
+the animators have used are just great.
 
-# And that's what
-I'm gonna do #
+I mean, Farquaad,
 
-# And I don't give a damn
-about my bad reputation #
+they actually have it to the point
+where he looks psychotic.
 
-# Oh, no, no, no, no, no
-Not me #
+I mean, he's got this sort of gleam
+in his eye that doesn't feel...
 
-- # Me, me, me #
-- Hey, Shrek, ¡tócame, tócame!
+It feels like he's disconnected
+with what he's thinking about.
 
-# And I don't give a damn
-about my reputation #
+One of the things
+we really found which...
 
-# Never said I wanted
-to improve my station #
+Duh. It's one of the most
+obvious things, probably,
 
-# And I'm always feelin'good
-when I'm having fun #
+but with the eyes being
+the window to the soul kind of thing,
 
-# And I don't have
-to please no one #
+and the fact that you really look
+at people's eyes when they're talking,
 
-¡La silla!
-¡Dale la silla!
+that's really where most
+of the important animation happens,
 
-# And I don't give a damn
-about my bad reputation #
+and it's little eye darts, small changes
+in the shape of the eyelids.
 
-# Oh, no, no, no, no, no
-Not me #
+If you look one way,
+if you look away for a moment,
 
-# Me, me, me #
+everything really changes
+very subtly in the eyes,
 
-# Oh, no, no, no, no #
+and that's kind of what the difference is
+between a character looking alive or not.
 
-# Not me, not me #
+We'd quite often be saying,
+"Add a blink here,"
 
-¡La silla!
-¡Dale la silla!
+or, "Do a little glance here,"
+or, "Look from one eye to the other."
 
-¡Gracias!
+It just makes all the difference. This was one of those sequences
 
-Muchas gracias. Estaré aquí hasta
-el jueves. Prueben la ternera.
+that really sets the type of humor
+that we did.
 
-¿Doy la orden, señor?
+Sometimes we'd do
+these comedy passes.
 
-No, se me ocurre algo mejor.
+Part of the way through production
 
-Gente de DuLoc...
+we'd get other directors together
+from DreamWorks and sit around
 
-¡les presento a nuestro campeón!
+and look at the movie
+kind of like we are now
 
-¿Qué?
+and just say, "Okay, I've got a joke!"
 
-Felicidades, ogro.
+And everyone adds ideas
+as they think of them, and that's where
 
-Te has ganado el honor de emprender
-una gran y noble cruzada.
+<i>The Dating Game</i> parody came out of. What was this before?
 
-¿Cruzada?
-Estoy a la mitad de una...
+It was just kind of a slideshow
 
-cruzada
-para recuperar mi ciénaga.
+where he was presenting
+a bunch of different women.
 
-¿Tu ciénaga?
+It didn't have the whole
+<i>Dating Game</i> feel to it.
 
-¡Sí! Mi ciénaga-- donde arrojó a
-todas las criaturas de los cuentos.
+And it was a natural,
+with the Magic Mirror becoming a TV.
 
-Ya veo.
+And once again,
+we actually have the voice
 
-Bueno, vamos a hacer un trato.
+of a storyboard artist, Chris Miller,
+being the voice of the Magic Mirror here.
 
-Emprende esta cruzada a mi nombre
-y yo te devuelvo tu ciénaga.
+You know, we make the whole movie
+in storyboard a couple of times.
 
-¿Justo como la tenía?
+Well, many, many times.
 
-Igual hasta el más mínimo hongo
-cubierto de cieno.
+More than a couple of times,
+in this case.
 
-¿Y los intrusos?
+And we record with ourselves
+and the story people.
 
-Desaparecerán.
+We do a lot of scratch dialogue,
 
-¿Qué clase de cruzada?
+and in some cases, you get so attached
+to the sound of the scratch dialogue.
 
-¿Vas a pelear contra un dragón...
+It's so funny. You can't do it better.
 
-por una princesa para que
-Farquaad te dé tu ciénaga...
+We did record the Mirror
+with a few other actors,
 
-que no tienes porque
-él te la llenó de cosas raras?
+and we just kept coming back to Chris.
+He's so funny.
 
-Quizá haya una buena razón
-por la que los burros no hablan.
+And our Thelonious, the executioner,
+is Chris Knights,
 
-No entiendo, Shrek. ¿Por qué
-no le haces una cosa de ogro?
+who was the assistant editor. And also one of the mice.
 
-Ahórcalo, ataca su fortaleza,
-tritura sus huesos, algo de ogro.
+And one of the mice.
+And funny that we kept it.
 
-Ya sé. ¿Por qué no decapito
-un pueblo entero...
+It actually... We really made this movie
+in Aron's garage.
 
-pongo sus cabezas en picas...
+It was just a bunch of people
+who got together one afternoon
 
-agarro un cuchillo,
-les abro el bazo...
+and did the voices
+and made the movie in the garage.
 
-y me bebo sus fluidos corporales?
-¿Te suena bien?
+I don't have a garage.
 
-No, la verdad, no.
+I love <i>The Piña Colada Song</i>
+coming in here. It just slays me.
 
-Los ogros son más complejos
-de lo que la gente cree.
+The first time it was pitched and Conrad
+started singing that song, I just died.
 
-¿Por ejemplo?
+I don't know if it was
+<i>The Piña Colada Song</i>
 
-Bueno...
+or Conrad singing
+that was particularly funny.
 
-los ogros son como las cebollas.
+A combination of the two.
 
-- ¿Apestan?
-- Sí-- ¡no!
+There's a little bit of animation
+on Farquaad coming up here
 
-- Te hacen llorar.
-- No.
+where he lifts his eyebrow
+and grits his teeth. It's so cool.
 
-Los dejas en el sol
-y se vuelven marrones.
+Raman was amazing,
+our supervising animator.
 
-¡No! ¡Capas!
+Raman Hui and his team
+did an incredible job,
 
-Las cebollas tienen capas.
+and that was one of the first little...
+Of those subtle expressions,
 
-Los ogros tienen capas.
-Las cebollas tienen capas.
+I think, with Farquaad, that he animated.
+It's just incredible.
 
-¿Entiendes?
-Los dos tenemos capas.
+This sequence was another one that
+went through incredible permutations,
 
-Ah. Los dos tienen capas,
+the introduction of Duloc
+and Farquaad's sterile environment.
 
-No a todos les gusta la cebolla.
+What he was doing to Duloc
 
-¡Pasteles! A todos los gustan
-y los pasteles tienen capas.
+he was planning to do
+to the rest of the kingdom.
 
-A mí me importa poco
-lo que les guste a todos.
+We looked at a lot of different things
+for Duloc.
 
-Los ogros no son como los pasteles.
+They went up to Hearst Castle.
 
-¿Sabes qué más les gusta a todos?
-Los milhojas.
+We looked at a lot of, kind of,
+Albert Speer architecture.
 
-¿A quién has oído decir
-"No me gustan los milhojas"?
+We ended up coming up with this thing
+that was basically a fascist theme park.
 
-Son deliciosos.
+Listen carefully. That's Andrew.
 
-¡Que no, bestia de carga tarada,
-irritante y miniatura!
+See? I can do it on call. That's very good. Okay, do it again.
 
-¡Los ogros son como las cebollas!
-¡Punto final! Adiosito.
+That was actually what I was saying
+through most of the movie.
 
-Nos vemos.
+Every time Jeffrey asked us
+to do anything, it was just like...
 
-Quizá los milhojas sean lo más
-delicioso que hay en el planeta.
+This sequence was the final version
+that combined all the best stuff.
 
-Creo que me gustaba
-más que tararearas.
+It was boarded by Eric Darnell,
+one of the animators...
 
-¿No tienes un pañuelo o algo?
+One of the directors, sorry, from <i>Antz,</i>
+along with Catherine Yuh.
 
-Nada más decir milhojas hizo
-que se me cayera la baba.
+He came up with the gag of...
 
-# I'm on my way from misery
-to happiness today #
+What are those... The "Welcome to Duloc."
 
-# I'm on my way from misery
-to happiness today #
+Yeah, the "Welcome to Duloc,"
+and the little dolls singing.
 
-# And everything
-that you receive up yonder #
+When we were looking
+for a manufactured reality,
 
-# Is what you give to me
-the day I wander #
+as I said, we went to Hearst Castle.
+We actually came to Universal City.
 
-# I'm on my way #
+We also looked into Las Vegas,
 
-# I'm on my way #
+but that was just an excuse
+to try and get to Las Vegas.
 
-Shrek, ¿fuiste tú?
+It would never appeal to families.
 
-Tienes que avisar
-antes de echarte uno.
+I love this doll sequence. It's so fun.
+It is a spoof of...
 
-Créeme, Burro, si hubiera sido yo,
-estarías muerto.
+We could sing it.
 
-Es azufre.
-Ya debemos de estar cerca.
+<i>Duloc's such a happy place</i>
 
-Sí, seguro. Azufre.
+I'll leave Vicky hanging out there
+singing by herself!
 
-Yo sé lo que olí y no fue azufre.
+It was fun. It was great.
 
-Aunque sí tiene que ver
-con "sufre".
+The little dolls are so cute.
+They're designed by Julia Woolf, again.
 
-Sí, es grande.
-Pero mira la ubicación.
+She was the best at coming up
+with our little Duloc graphics.
 
-Shrek, ¿te acuerdas
-de lo que dijiste...
+The signs hanging over
+all the different shops.
 
-que los ogros tienen capas?
+The art department
+just did amazing research
 
-Pues tengo que confesarte algo.
+and beautiful work all through the movie,
+but in Duloc, we had a lot of fun.
 
-Los burros no tienen capas.
-Traemos el miedo en la manga.
+I think painting the walls
+to that perfect, sterile white,
 
-Los burros no usan mangas.
+and painting the flowers
+to the pink color.
 
-Sabes a lo que me refiero.
+You can see examples of it
+in the background,
 
-¿Le tienes miedo a las alturas?
+I think a little earlier than these shots,
+but part of Duloc is still being renovated.
 
-¡No, sólo me siento incómodo
-de andar en...
+James Hegedus,
+our production designer,
 
-un puente frágil sobre lava!
+has had a lot of experience
+in both visual effects and live action,
 
-Por favor, Burro.
-Yo voy a estar aquí, junto a ti...
+and he had this wonderful sense of,
+sort of, fantasy storybook
 
-para darte apoyo emocional.
+that he managed to sort of incorporate
+into this whole 3-D world,
 
-Encararemos esto juntos,
-pasito a pasito.
+and actually was really, really good
+with all the lighting.
 
-- ¿De veras?
-- De veras, de veras.
+We had a very stylized lighting scheme
+that we wanted to use,
 
-Me haces sentir mucho mejor.
+kind of almost
+an Impressionistic palette.
 
-Sólo sigue caminando
-y no mires hacia abajo.
+We have very warm light
+and cool shadows,
 
-No mires hacia abajo.
-Camina. No mires abajo.
+and it's very enhanced, very heightened,
 
-No mires abajo.
-Camina. No mires abajo.
+and it was very difficult
+for the lighters to actually achieve.
 
-¡Shrek!
-¡Estoy mirando hacia abajo!
+They had to work very hard
+to do something
 
-¡No puedo!
-¡Me quiero bajar!
+that was behaving in a photo-real way,
+with true lighting and shadow,
 
-Ya estás a mitad del camino.
+but then also was very enhanced
+and stylized in its colorization,
 
-¡Pero esa mitad es segura!
+and I know it was a very difficult thing
+for them all the way through.
 
-Bueno, no tengo tiempo para esto.
-Tú regresa.
+There's been all kinds of great ad-libs
+from Mike throughout here.
 
-¡Shrek! ¡Espera!
+When they're coming
+through the tunnel, when he says,
 
-Vamos a bailar. Ven acá.
+"All right, you're going the right way
+for a smacked bottom,"
 
-¡No hagas eso!
+it was something he recorded
+in-between takes.
 
-Perdón. ¿Que no haga qué?
+I think he was actually
+reprimanding Andrew.
 
-¿Esto?
+I know. We thought it was really funny,
+and we found a place to slip it in.
 
-¡Sí, eso!
+This was one of those sequences, too.
+We've always had a tournament,
 
-¿Sí? Sí. Hazlo. Bueno.
+and it was a little more traditional
+with Shrek taking out the...
 
-¡No, Shrek!
+Jousting and horseback-riding
+and the whole bit.
 
-- ¡Ya basta!
-- ¡Dijiste que lo hiciera!
+One of our animators came up
+with the idea to make it more like
 
-¡Me voy a morir!
-¡Me voy a morir! ¡Shrek!
+a World Federation Wrestling
+kind of thing,
 
-Eso es, Burro. Eso es.
+and we just all collectively
+slapped our foreheads with a "duh!"
 
-Genial.
+We were a little ways down the line
+with this sequence
 
-¿Dónde está la maravilla
-que escupe fuego?
+when that idea came around,
+and we just said,
 
-Dentro, esperando
-a que la rescatemos.
+"Okay, it's totally worth going back
+and making it work that way."
 
-Me refería al dragón, Shrek.
+That little bit of hockey
+was in tribute to Mike Myers.
 
-- ¿Tienes miedo?
-- No.
+Yes.
 
-Pero, silencio.
+And the mud and water here,
+that was actually,
 
-Qué bien. Yo tampoco.
+for its brief moment onscreen,
 
-No tiene nada de malo tener miedo.
+probably one of the more scientifically
+difficult effects we had ever done.
 
-El miedo es una respuesta sensata
-ante lo desconocido.
+Absolutely.
 
-Y a lo peligroso.
+PDI had developed a water system
+for use on <i>Antz,</i> so of course we said,
 
-Si un dragón escupe fuego
-y come caballeros y escupe fuego...
+"Well, now we want to use beer,
+mud and everything mixed together,"
 
-el que tengas un poco de miedo
-no significa que seas cobarde.
+so they had to extend it even further.
 
-Yo sé que no soy un cobarde.
+Those crowds are fun.
+They're like mix-and-match people.
 
-Burro, dos cosas, ¿está bien?
+Mr. Potato Head people.
 
-Cállate. La boca.
+You can pick features and hair
+and clothing color,
 
-Ve a buscar unas escaleras.
+and the guys mixed them all together
+to come up with these crowds.
 
-¿No estamos buscando a la princesa?
+But it's so funny,
+even in computer animation,
 
-Estará arriba de las escaleras,
-en la torre más alta.
+no one likes to do crowds.
+They hate it in traditional animation.
 
-¿Cómo sabes?
+It's just too much to draw,
+too much to control,
 
-Lo leí una vez en un libro.
+and it doesn't change in computer.
+It's just as painstaking.
 
-Perfecto. Tú te encargas
-del dragón, yo, de las escaleras.
+I hate that one woman in pink. Yeah, I don't like her either.
 
-Voy a encontrar esas escaleras.
-Y las voy a vencer. Vas a ver.
+With her big jaw? She was also very difficult to work with.
 
-Tomaré medidas drásticas.
+Yes, she was terrible. She wouldn't come out of her trailer.
 
-No se metan conmigo,
-soy el "escalasno".
+She always did that same movement
+of just holding her arms in the air
 
-Amo de las escaleras.
+and just jerking her body back and forth.
+I didn't like that.
 
-Ojalá hubiera un escalón,
-le daría una buena pisada.
+I love this, the <i>Gladiator</i> shot.
 
-Ahí está la princesa.
-¿Pero dónde está el...?
+That's one benefit
+of working on a movie for so long,
 
-¡Dragón!
+is that you get to keep adding gags
+and little tributes.
 
-¡Burro, cuidado!
+Referring to all the films
+that have come out
 
-¡Te agarré!
+in the three years
+you were working on this one.
 
-No. ¡Ay, ay, ay!
+That was fun, too.
+Those are all crossbows,
 
-Qué dientes tan grandes tienes.
+but we needed to have a sound cue
 
-Dientes blancos, brillantes.
+that made you realize
+that Shrek was in danger,
 
-Tu comida te lo ha de decir
-con frecuencia.
+so it was the sound
+of cocking pistols and rifles, but...
 
-Les debes poner blanqueador, porque
-tienes una sonrisa impactante.
+By the way, there are no arrows
+in those crossbows.
 
-¿Detecto un poco de sabor
-a menta fresca? ¿Sabes qué más?
+No, there are, they added them! Did they get added?
 
-¿Sabes qué más?
-Eres-- ¡eres una dragona!
+Yes, they did them partway through.
+I didn't notice that
 
-Digo, claro que eres
-una dragona, porque...
+until I was actually checking a frame
+of film and arrows showed up, so...
 
-simplemente apestas
-a belleza femenina.
+We have these things called CBBs,
+which is "Could Be Better..."
 
-¿Qué te pasa?
-¿Se te metió algo en el ojo?
+Which in my book means,
+"Never will get done."
 
-Me encantaría quedarme,
-pero tengo asma...
+Which means, "Done. Move on." Yeah.
 
-y esto no va a funcionar
-si sigues echando anillos de humo.
+But we had a CBB on the fact
 
-¡Shrek!
+that somebody hadn't put any arrows
+in the crossbows,
 
-¡No! ¡Shrek! ¡Shrek! ¡Shrek!
+and we just thought,
+"Well, no one will notice."
 
-- ¡Despierta!
-- ¿Qué?
+And then somebody actually went back
+and put the arrows in.
 
-¿Eres la princesa Fiona?
+That's awesome.
 
-Lo soy.
+This deal here
+between Farquaad and Shrek.
 
-Esperando a que
-un osado caballero me rescate.
+There used to be an entire sequence
+about this, boarded hundreds of times.
 
-Qué lindo. ¡Vámonos!
+The two of them walking through
+a garden making the deal,
 
-¡Pero esperad, Sir Caballero!
+because actually,
+when you think about it,
 
-Este "sed"
-nuestro primer encuentro.
+having Farquaad as fastidious
+and small as he is
 
-¿No debería ser
-un momento maravilloso, romántico?
+and Shrek as huge
+and slovenly as he is,
 
-Disculpe, señora.
-No hay tiempo.
+putting the two of them together
 
-¿Qué estáis haciendo?
+just seemed like
+it would be ripe for comedy.
 
-¡Deberíais sacarme volando...
+There was
+a whole dinner sequence, and...
 
-por aquella ventana,
-a vuestro valiente corcel!
+And a fantastic performance
+from John Lithgow.
 
-Tuvo mucho tiempo
-para planear esto, ¿verdad?
+With the deal.
+We used to have this one scene...
 
-Tenemos que saborear este momento.
-Podríais recitarme un poema épico.
+One of the many versions of the deal
+was when they came in
 
-¿Una balada? ¿Un soneto?
+and Farquaad showed Shrek a model
+of the world-to-be,
 
-- ¿Un poema humorístico? ¡Algo!
-- Yo creo que no.
+his vision of Duloc, and he had
+this wonderful rant, which was just
 
-¿Puedo, al menos,
-conocer el nombre de mi campeón?
+an incredible performance from John. "It will be a Duloc world after all!"
 
-Ah-- Shrek.
+This is the very first sequence
+we animated,
 
-Sir Shrek...
+the first one that went into production,
+and it got rerecorded a couple of times.
 
-os suplico que aceptéis
-este recuerdo...
+And actually reanimated
+a number of times.
 
-como muestra de mi gratitud.
+We found that after
+we'd gone a bit further
 
-Gracias.
+and the animators really got
+a hang of the animation system
 
-¿No mataste al dragón?
+and Shrek and his face
+and how it worked,
 
-Está en mi lista de pendientes.
-¡Vámonos!
+when we came back
+and watched the sequence,
 
-Pero esto no está bien.
-Deberías ir...
+it looked like Shrek had just been in
+for dental work.
 
-espada desenfundada y estandarte
-ondeando, como esos caballeros.
+It had that kind of
+numb-lower-lip kind of feel.
 
-Justo antes de que se incendiaran.
+And in truth it was good.
+The animation was still good,
 
-Eso no es lo importante.
+but it wasn't up
+to how much everyone had grown
 
-¿A dónde vas?
-La salida está allá.
+over the course of the film.
+We did that with Fiona also.
 
-Qué burro, lo tengo que salvar.
+Yeah.
 
-¿Qué clase de caballero eres?
+You know, you learn a lot
+about the characters along the way.
 
-Soy único.
+What can they do, what can't they do,
+what looks good, what doesn't,
 
-Más despacio.
+what sells an emotion,
+and you come back and fix it,
 
-Es más sano conocerse poco a poco,
-durante algún tiempo.
+which is the great thing
+about this process.
 
-Seré chapado a la antigua,
-pero no quiero precipitarme y...
+Donkey is so fun in this sequence.
 
-empezar una relación física.
-Un compromiso de esta...
+This is the one
+where Andrew was talking about...
 
-magnitud,
-era la palabra que estaba buscando.
+He took one line
+and turned it into a three-beat joke.
 
-¡Eso es contacto físico indeseado!
+This bit at the end
+about parfaits and tissues.
 
-¿Qué estás haciendo?
+Great acting from Raman here again.
 
-Bueno, hay que dar marcha atrás
-y avanzar paso por paso.
+The other thing I love
+about this sequence
 
-Necesitamos conocernos como amigos.
-O como amigos por correspondencia.
+is the willingness
+that the effects artists had
 
-Yo viajo mucho,
-pero me encanta recibir tarjetas.
+to just go in and go that extra mile
+and put in the little details
 
-Me encantaría quedarme, pero...
+that you would often think
+you don't need,
 
-Me la vas arrancar.
-¿Qué vas a hacer con eso?
+but just help cue you into a reality.
+They help make this world believable.
 
-Ah, no, eso no.
+Even though it's not our world,
+it's as believable as our world,
 
-¡No, no, no!
+and it's little things
 
-- Hola, princesa.
-- ¡Habla!
+like noticing the petals on the flowers
+blowing in the wind.
 
-Sí. Lo difícil es hacer
-que se calle.
+The flies buzzing. Which I've gotta say,
 
-¡Ustedes dos,
-váyanse a la salida!
+to people who don't know a lot
+about this process,
 
-Yo me encargo del dragón.
+it's one of the things that really
+stands out for them in this film,
 
-¡Corran!
+is this sequence and the sunflowers. Right.
 
-¡Lo lograste!
+I've had a number of people
+say that to me.
 
-¡Me rescataste! ¡Eres increíble!
-¡Eres maravilloso! Eres...
+Because...
+You know, we didn't even think about it,
 
-un poco fuera de lo normal,
-lo tengo que admitir, pero...
+'cause we did it way back when, but... Yeah.
 
-vuestra hazaña es grande
-y vuestro corazón es puro.
+And just even having wind blowing
+in the trees and things like that.
 
-Estoy eternamente agradecida.
+It's one of those things you don't notice,
+but you expect it,
 
-¿Y dónde estaría tan valiente
-caballero sin su noble corcel?
+and if it's not there,
+then you notice its absence,
 
-¿Oíste? Me llamó "noble corcel".
-Cree que soy un corcel.
+and that's when you lose
+the suspension of disbelief,
 
-Ganó la batalla. Se puede quitar
-el casco, buen Sir Caballero.
+and it was very important
+to maintain that.
 
-Ah, no.
+Yeah, little puffs of dust
+when they're walking along.
 
-¿Por qué no?
+This was funny.
 
-Tengo pelo de casco.
+Because of the issue with the princess
+becoming an ogre at night,
 
-Por favor, no sabéis cuánto
-deseo ver vuestra cara.
+we had to make sure this sequence
+felt like it was daytime,
 
-No, parecedme que no.
+so we had to go back in and add
+daylight poking through those clouds,
 
-Pero ¿cómo me vas a besar?
+'cause we had this big, ominous
+circle of clouds over the volcano,
 
-Eso no era parte del trabajo.
+but when it was real dense,
+it felt like we were already in nighttime,
 
-Quizá es una prestación.
+so it defeated, or at least diluted,
+the issue of the princess.
 
-No, es el destino.
-Debes de saber cómo acaba.
+So hopefully you're not silly enough
+to actually watch it the first time
 
-Una princesa encerrada en una torre
-y acosada por un dragón...
+with the director commentary,
+or else we just ruined the story for you.
 
-es rescatada
-por un valiente caballero...
+And if you did, then you deserve it.
 
-y luego comparten el primer beso
-del verdadero amor.
+Then stop now,
+go back and watch the movie properly.
 
-¿Con Shrek?
-¿Usted cree--
+This is the second scene we animated,
+and it was, as you'll see in a second,
 
-Un segundo. ¿Cree que Shrek
-es su verdadero amor?
+so hard that pretty much everyone
+wanted to quit after it,
 
-¡Pues-- sí!
+but we convinced them to stay. I know I wanted to.
 
-¡Cree que Shrek es
-su verdadero amor!
+Wait. There's a joke coming up here
+we tried so many things for.
 
-¿Qué tiene de chistoso?
+We ended up coming back
+to the original.
 
-Digamos nada más que no soy
-de su tipo, ¿está bien?
+No one could come up
+with a better joke.
 
-Claro que eres de mi tipo.
-Tú me rescataste.
+"But look at the location!"
 
-Vamos, quítate el casco.
+It kills me! Slays me every time. Sorry.
 
-No es buena idea.
+Lava. There used to be
+a parking lot of skeletons
 
-- Quítate el casco.
-- Me niego.
+from previous knights' horses.
 
-- Quítatelo.
-- ¡No!
+They'd parked them out front,
+gone in to rescue the princess,
 
-- ¡Ahora mismo!
-- ¡Está bien! Calma.
+never came back,
+and the horses just died there.
 
-A sus órdenes, Su Alteza.
+We thought it was funny at the time,
+but ultimately, it just didn't look right.
 
-Eres un-- un ogro.
+At one point, this sequence
+was in another place in the movie, too,
 
-Usted estaba esperando
-al Príncipe Valiente.
+and their relationship
+wasn't as advanced,
 
-Pues, la verdad, sí.
+and actually, it felt like Shrek
+was much too mean to Donkey,
 
-Ay, no.
-Esto está todo mal.
+and we came back
+and kind of moved it around.
 
-Tú no deberías ser un ogro.
+We managed
+to find a performance in there
 
-Princesa, Lord Farquaad me mandó
-a rescatarla, ¿está claro?
+that supported him not being so mean.
+Because it's not about him being mean,
 
-Él se quiere casar con usted.
+it's about him
+using Donkey's own insecurities
 
-¿Por qué no me rescató él?
+to get him to cross the bridge.
 
-Buena pregunta.
-Hágasela usted cuando lleguemos.
+Which is actually kind of
+how we made the movie.
 
-Pero a mí me tiene que rescatar
-mi verdadero amor...
+We just used our own insecurities
+to try and get us through it.
 
-no un ogro y su mascota.
+For a while, it felt like this sequence
+was just always so overproduced.
 
-Hasta ahí llegó el "noble corcel".
+Like, what's going on?
+They're just crossing a bridge.
 
-No me está facilitando mi trabajo.
+But in a way, it really develops
+their character, their relationship.
 
-Disculpa, pero tu trabajo
-no es mi problema.
+The effects artists did a wonderful job
+with this lava, too.
 
-Dile a Lord Farquaad que si quiere
-rescatarme como es debido...
+Again, anything that you see
+in the movie that's fluid or very organic
 
-lo estaré esperando aquí.
+is actually some
+of the most difficult stuff to do,
 
-¡Oiga! Yo no soy recadero
-de nadie, ¿entiende?
+and involves a lot
+of very heavy computation,
 
-Soy un repartidor.
+a lot of very complex formulas
 
-No te atrevas.
+to figure out
+how these things work and move,
 
-- ¿Vienes, Burro?
-- Pisándote la cola.
+and they did an amazing job
+with all of those things.
 
-¡Bájame o sufrirás
-las consecuencias!
+This sequence is also a good example
+of the idea of using cameras
 
-¡Esto no es digno! ¡Bájame!
+in a more real way in this movie.
+Obviously, in computer animation,
 
-Ahí le va otra pregunta.
+you can put that camera
+anywhere you want,
 
-Uno le gusta a una mujer,
-pero no es recíproco.
+move it perfectly in line
+with the characters
 
-¿Qué haces para no herirla
-y que no te carbonice?
+as they're walking along,
+but in this case,
 
-Nada más dile
-que no es tu verdadero amor.
+we really wanted, kind of,
+a handheld feel,
 
-Todos saben lo que pasa
-cuando encuentras...
+and have the cameras behave in a way
+that the audience is used to seeing
 
-Cuanto antes lleguemos, mejor.
+in traditional live-action films,
+and that sequence was really effective,
 
-Le encantará, princesa.
-Es hermoso.
+with the camera swinging out
+over the bridge.
 
-¿Y qué tal mi futuro novio,
-Lord Farquaad? ¿Cómo es?
+You really feel like
+you're on the bridge with them.
 
-Déjeme ponerlo así.
+This was one of the first sequences
 
-Hombres de su estatura...
+where we actually really allowed black
+to be a major part of the palette.
 
-sobresalen sólo por sus méritos.
+We kind of made this commitment,
+as I said before,
 
-No sé, Shrek, algunos consideran
-pequeña su leyenda.
+to a very heightened
+kind of lighting system,
 
-Ya basta.
-Basta, los dos.
+and had limited our shadows,
+or keeping our shadows full of light.
 
-Le tienen celos porque jamás podrán
-llegarle a los talones.
+And because we wanted
+a very different mood inside the castle,
 
-Quizá tenga usted razón,
-princesa.
+we allowed this one now to have
+sort of black in it for the first time.
 
-Dejaré que usted nos mida
-cuando lo vea mañana.
+It was one of the nice things about
+working in animation, working in CG,
 
-¿Mañana?
+is you design every element
+that's in there,
 
-¿Tanto vamos a tardar?
+which gives you the freedom
 
-¿No deberíamos acampar?
+to completely play
+with the environments
 
-No. Así tardaríamos más.
+to create a mood,
 
-- Podemos seguir avanzando.
-- Pero hay ladrones en el bosque.
+and this is one where we wanted
+to create a very different mood
 
-¡Tiempo fuera! La idea de acampar
-me está empezando a gustar.
+and just limit the palette
+to black, red and blue.
 
-Por favor. Yo soy más temible que
-cualquier cosa que podamos hallar.
+That's not dissimilar
+to what a cinematographer
 
-¡Necesito un lugar
-para acampar ahora mismo!
+and a production designer
+would do together in a live-action film.
 
-¡Oye, aquí!
+Right. As the sequence goes on,
+once the Dragon comes in,
 
-Podemos encontrar algo mejor.
+we actually wanted to get more
+and more stylized with the lighting.
 
-Esto no es apropiado
-para una princesa.
+We referenced things like <i>Cinderella,</i>
 
-Es perfecto. Sólo necesita
-unos toques hogareños.
+where the sisters are pulling her dress
+and ripping her dress,
 
-¿Toques hogareños?
-¿Como cuáles?
+and she can't go to the ball,
 
-¿Una puerta?
+and the background started to drop out
+to just red.
 
-Caballeros, os deseo buenas noches.
+There's also an Orson Welles film,
+<i>Touch of Evil,</i>
 
-¿Le leo un cuento
-para que se duerma?
+where there was a murder scene where,
+as the lights flashed on and off,
 
-¡Dije que buenas noches!
+the sequence became
+more and more simplified,
 
-¿Qué estás haciendo?
+and in our case,
+once the Dragon shows up,
 
-Nada más-- ya sabes.
-Por favor, estaba bromeando.
+the environment does fill up with smoke,
+but it goes more and more red,
 
-Y ése.
+and the details of the background
+start to drop out.
 
-Ése es Throwback, el único ogro que
-escupió sobre tres campos de trigo.
+The fire.
+Andrew, you gotta talk about the fire.
 
-Seguro. Sí.
+Again, it's organic in its nature,
 
-¿Puedes ver mi futuro
-en las estrellas?
+and because of that
+was very difficult to achieve.
 
-Las estrellas no dicen el futuro,
-nos cuentan historias.
+Very often, computer-generated fire
+tends to have either a very soft quality
 
-Mira, ahí está Bloodnut el Gaseoso.
+or a very hard-edged quality,
 
-¿Adivina por qué era famoso?
+and we had
+to really come up with something
 
-Estás inventando todo.
+that behaved more like real fire
+but we had complete control over,
 
-No, mira. Ahí está.
+'cause we wanted to use it, obviously,
 
-Y ahí están los cazadores
-huyendo de su pestilencia.
+as the Dragon's
+main defense mechanism here.
 
-Sólo son un montón de puntitos.
+His little tail is smoking.
 
-Burro, a veces las cosas
-son más de lo que aparentan.
+This was really scary
+at one point for kids,
 
-Olvídalo.
+when the music was even bigger
+and more dramatic,
 
-¿Qué vamos a hacer
-cuando nos den nuestra ciénaga?
+but John Powell was amazing.
 
-¿"Nuestra" ciénaga?
+He took it a bit more heroic
+and a little more positive,
 
-Cuando acabemos de rescatar
-a la princesa.
+and you realize
+that nobody's gonna get that badly hurt,
 
-¿"Acabemos"? Burro, nada de "nos".
-Nada de "nuestra". Sólo soy...
+and the kids kind of get over it.
 
-yo con mi ciénaga.
+Plus, when they see that Dragon
+falls in love with Donkey, it's okay.
 
-Y lo primero que haré es construir
-un muro alrededor de mi tierra.
+There's also, there,
+a very nice storytelling shortcut.
 
-Me heriste hondo, Shrek.
-Me acabas de herir en lo profundo.
+Let's just throw Shrek into the room
+so he doesn't have to find her.
 
-Creo que eso del muro es una forma
-de no dejar entrar a alguien.
+It's so convenient. It worked.
 
-No. ¿Tú crees?
+I love this part. Poor
+Donkey. Little thing.
 
-- ¿Ocultas algo?
-- Olvídalo, Burro.
+There she is.
 
-Ésta es otra de esas cosas
-como lo de la cebolla.
+One of the challenging things,
+actually, in this part of the sequence
 
-No, ésta es otra de esas cosas
-como de "cambio de tema".
+was all the smoke and atmosphere.
+Again, that's sort of volumetric stuff
 
-- ¿Por qué no lo quieres hablar?
-- ¿Por qué tú sí quieres?
+that's very difficult to do in CG and very
+computational, and was really quite a...
 
-- ¿Por qué te bloqueas?
-- Yo, no.
+Difficult to say. Difficult to say as well, yeah.
 
-- Sí, estás bloqueado.
-- Te lo advierto.
+But it was a real challenge
+to build up this density in the air
 
-¿Quién no quieres que entre?
+as the smoke and fire
+and everything kicked up.
 
-¡Todos! ¿Contento?
+But we really wanted to give it
+a softer look in general,
 
-Ahora sí,
-estamos empezando a avanzar.
+to make it feel like another world
 
-¡Ay, por el amor de Dios!
+and not the traditional,
+hard-edged CG look.
 
-¿Cuál es tu problema?
-¿Qué tienes contra el mundo?
+Really fun acting on the Dragon, too,
+which was a real difficult trick
 
-Yo no tengo problemas. El mundo es
-el que tiene un problema conmigo.
+with her being so big
+and her texture so evident, but...
 
-La gente, apenas me ve, empieza:
-"¡Ay! ¡Auxilio! ¡Corran!"
+And not particularly vocal.
 
-"¡Un gigantesco ogro estúpido!"
+Fairly limited facial animation setup
+for the Dragon,
 
-Me juzgan sin siquiera conocerme.
+but we got to do a lot of good things
+with her.
 
-Por eso prefiero estar solo.
+A great tail swing on her. Her voice was difficult, too.
 
-Cuando te conocí, yo no pensé que
-eras un gigantesco ogro estúpido.
+We ended up going through
+a lot of different panthers
 
-Sí, ya lo sé.
+and leopards and dogs,
 
-Oye, ¿hay burros allá arriba?
+and Hans Zimmer, the composer,
+actually brought his dog into the studio
 
-Bueno, está Parlanchín...
+and left him there to whine. To whine for us.
 
-el Pequeño y Molesto.
+This was another one of those moments
 
-Está bien, ya lo veo. El grande,
-brillante de ahí, ¿cierto?
+where we hit on the humor
+early on in storyboard,
 
-- Ésa es la luna.
-- Ah, bueno.
+with Princess Fiona laying down
+to pretend to be asleep
 
-Otra vez.
-Enséñamela otra vez.
+and pucker her lips in preparation
+for the kiss from her Prince Charming.
 
-Espejo, espejo, muéstramela.
+That was first pitched
+from Catherine Yuh in the storyboard.
 
-Muéstrame a la princesa.
+It was sort of like,
+"That's it! That's amazing!"
 
-Perfecto.
+"That's the tone of the movie!"
 
-Sí, ya sabes que así me gusta.
+I do remember, too, this was
+the first animation we did with Fiona,
 
-Nena, ven y móntame.
+and the first time we saw her
+get up from the bed,
 
-Burro, despierta.
+I think we all practically
+ran out of the room screaming,
 
-Despierta.
+'cause it just didn't look quite right! That's right. It was pretty scary.
 
-Buenos días.
+The design, even, of Fiona
+was very scary.
 
-¿Cómo les gustan los huevos?
+I mean, Tom Hester,
+our lead character designer,
 
-¡Buenos días, princesa!
+had built most of these characters
+in clay
 
-¿Qué está haciendo?
+before we took them into the computer,
+and there's a bit of a difference
 
-Ayer empezamos con el pie izquierdo
-y quise reparar el daño.
+between the translation
+from clay to computer, we found.
 
-Digo, después de todo,
-sí me rescataste.
+She was much more stylized
+at one stage
 
-Gracias.
+with big and more anime eyes
+and so on,
 
-Coman. Tenemos un día importante
-por delante.
+and she just looked like this freaked-out
+ant-mannequin creature.
 
-- ¡Shrek!
-- ¿Qué? Es un cumplido.
+Just very scary. Yeah. It did not work.
 
-Mejor afuera que adentro, digo yo.
+Very tiny waist.
 
-Así no se porta uno
-enfrente de una princesa.
+Cameron was really fun to work with,
 
-Gracias.
+and we'd do recordings with her,
+and she would just go and go and go.
 
-Ella es tan grosera como tú.
+She had more endurance than we did.
 
-¿Sabe qué? No es usted
-exactamente lo que me esperaba.
+She was amazing.
 
-Quizá no deberías juzgar
-a la gente antes de conocerla.
+She really wanted to
+get into the physicality
 
-¡La liberté!
+of the princess running down the stairs,
 
-¡Princesa!
+and she had Cody, one of our story guys
+who was reading lines with her,
 
-- ¿Qué hace?
-- ¡Calma, chérie, soy su salvador!
+grab her arm and pull her
 
-Y la voy a rescatar
-de esa cosa verde...
+so that she could sound
+like she was being pulled by Shrek.
 
-de esa bestia.
+I thought he was gonna pull her arm out.
 
-¡Ésa es mi princesa!
-¡Ve y búscate la tuya!
+Which Cody was only too happy to do.
 
-¡Por favor, monstruo!
-¿No ves que estoy ocupado?
+He had a great joke,
+'cause his last name is Cameron.
 
-Mira, amigo,
-no sé quién te crees que eres...
+We got him to do this finally after
+a year and a half of recording with her.
 
-¡Por supuesto! ¡Qué descortés!
-Por favor permítame presentarme.
+"Cody, go ahead. Tell her your joke!" "Do your joke, Cody. Perform!"
 
-¡Hombres Alegres!
+And he goes,
+"Cameron, if you married me,"
 
-Le robo al rico
-Le doy al necesitado
+"you'd be Cameron Cameron."
 
-- Agarra un porcentaje
-- Pero no soy avaro
+So there's a cookbook back there.
+What does it say?
 
-Rescato a damiselas
-con mi aptitud
+<i>Tasty Treats: How to Prepare a Knight.</i> Yeah.
 
-Qué tipazo
-Monsieur Hood
+It's the Dragon's cookbook
+for cooking knights.
 
-A bailar.
+The art department, again,
+was amazing,
 
-Me gustan las peleas
-y las criadas pícaras
+coming up with this kitchen,
+this Dragon's kitchen.
 
-- O sea, le gusta la--
-- Buena paga
+Yeah, and everyone was really good.
 
-Cuando un ogro oculto agarra
-a una dama en el-- qué mal
+The level of detail
+that we wanted to push things to
 
-Está mal
+and the level of detail that
+the art department pushed things to,
 
-Ver una bella y una bestia
-me hace enojar
+and then the level of detail
+that the effects animators,
 
-Lo hace enojar de verdad
+the lighters,
+and the animators went to...
 
-Agarro mi espada
-lo voy a atravesar
+Speaking of lighting,
+this one was really funny,
 
-No me pierdan de vista, chicos
-porque voy a empezar
+because we always wanted it
+to feel like, kind of, a disco boudoir.
 
-Qué cosa tan molesta.
+This was the great
+Dragon seduction scene.
 
-¡Pequeña...!
+We even had music playing
+at one point.
 
-¿Nos vamos?
+At one stage, we had
+<i>Love to Love You Baby</i> in there,
 
-Un momento.
+and for a while we had <i>Puppy Love</i>
+played on the harp.
 
-Momento, momento, espera.
-¿De dónde salió eso?
+In a lot of ways,
+the lighters have it the worst,
 
-Eso. Allá atrás.
-¡Estuvo increíble!
+because there's so many iterations,
 
-¿Dónde aprendiste eso?
+and it's the end of the line,
+so things have to look right.
 
-Cuando una vive sola...
+So it's back and forth
+and back and forth with the directors
 
-tiene que aprender
-esas cosas en caso de que...
+to make this perfect, make this right,
+and they never gave up,
 
-¡Traes una flecha en el trasero!
+and they just did an incredible job. Some great slow-mo coming up.
 
-Mira eso.
+The temp track we had
+was sort of a <i>James Bond</i> thing
 
-Todo ha sido por mi culpa.
-Perdóname.
+done by the Propellerheads,
+and it had this great energy about it,
 
-- ¿Qué pasa?
-- Shrek está herido.
+and the composers...
+I think we really tortured them.
 
-¿Shrek está herido?
-¡No, Shrek se va a morir!
+They kept the flavor of it,
 
-Burro, estoy bien.
+but still working
+with Shrek's heroic theme.
 
-No, soy muy joven para que mueras.
-Alza las piernas.
+Yes, and they did really great
+with this piece of music.
 
-¡Voltea la cabeza y tose,
-la Heimlich!
+Wonderful. Yeah.
 
-¡Burro! ¡Cálmate!
+This is where we really wanted
+to play with, kind of,
 
-Si quieres ayudar a Shrek, tráeme
-una flor azul con espinas rojas.
+a live-action action-sequence feel,
 
-Flor azul, espinas rojas.
-Me encargaré de eso.
+which is why we started playing around
+with the camera speeds
 
-¡No te mueras, Shrek! ¡Si ves un
-túnel largo, no vayas hacia la luz!
+and just really shooting it more
+like this was kind of a live-action movie.
 
-- ¡Burro!
-- Cierto. Flor azul, espinas rojas.
+There's that extra-long column
+that they could slide down.
 
-- ¿Para qué son las flores?
-- Para deshacerme de Burro.
+That column
+would be three times longer
 
-Quédate quieto
-y te voy a sacar esto.
+than any other column in that room,
 
-¡Cuidado con la sacada!
+but we needed it to be like that
+so they could slide down it.
 
-Perdón, pero tiene que salir.
-Ahora...
+Very sophisticated humor there. This one's funny, too,
 
-No, me duele.
+because it was storyboarded
+by Dave Lowery,
 
-Está haciendo
-lo opuesto de ayudarme.
+who's storyboarded
+for Steven Spielberg quite a bit,
 
-Tiempo fuera.
+along with Simon Wells,
+the director from <i>Prince of Egypt,</i>
 
-Está bien.
-¿Qué propones tú que hagamos?
+and if you look at this gag,
+it is kind of a classic cartoon gag
 
-Flor azul, espinas rojas.
-Flor azul, espinas rojas.
+of characters running
+in and out of corridors,
 
-¡Esto sería mucho más fácil
-si no fuera yo daltónico!
+kind of popping up
+where you don't expect them to,
 
-¡Aguanta, Shrek!
-¡Ya voy!
+but it worked really great,
+to drag that chain...
 
-No va bien.
+It's a really long chain. Very long chain.
 
-Bueno, ya casi veo la cabeza.
+Didn't we refer to that overhead shot
+as the <i>Scooby-Doo</i> shot?
 
-No pasó nada. Sólo estábamos--
+Yeah, I think so. I think in my presence you didn't.
 
-Si querían estar solos,
-nada más tenían que pedírmelo.
+I think I did in your presence.
 
-¡Por favor!
-Eso es lo último que me interesa.
+Another cool slow-motion. I love this shot.
 
-La princesa nada más estaba--
+Yeah, I love this shot, too.
 
-¡Ay!
+Simon Smith, our layout supervisor,
+had a lot of fun with this sequence.
 
-Oiga, ¿qué es eso?
-¿Es sangre?
+And they all come up to speed
+as they're running. Very exciting.
 
-# My beloved monster and me #
+The first time
+we put this sequence together,
 
-# We go everywhere together #
+everyone just was floored. Again, the fire there is incredible.
 
-# Wearin'a raincoat
-that has four sleeves #
+It was not only the balls of fire
+that we'd already had,
 
-- # Gets us through all kinds of weather #
-- Aah!
+but we wanted the fire
+to actually be burning the bridge,
 
-# She will always be
-the only thing #
+so they had to make fire
 
-# That comes between me
-and the awful sting #
+that kind of tracked along
+physical objects and so on.
 
-# That comes from living in a world
-that's so damn mean #
+The end of this sequence,
+when they all escape
 
-Ahí está, princesa.
+and the Dragon is caught
+at the end here,
 
-Su futuro la espera.
+Steven Spielberg actually suggested
+we add a shot
 
-¿Eso es DuLoc?
+where she sits like a puppy dog,
+kind of pining away for Donkey,
 
-Shrek piensa que Lord Farquaad
-está compensando por algo.
+and it really helped you remember her
+for when she comes...
 
-Creo que significa
-que tiene un...
+First we kind of said,
+"Steven, what does he know?"
 
-Bueno, supongo que más vale
-que sigamos adelante.
+Yeah, exactly. Yeah. "This is our movie!"
 
-Seguro.
-Pero-- ¿Shrek?
+You know,
+"What are you talking about?"
 
-Estoy-- estoy preocupada por Burro.
+It's so great to be able to get
+that kind of expert opinion
 
-Digo, míralo.
-No se ve muy bien.
+on the work you're doing,
+and it always helped us along the way.
 
-¿Qué? Estoy perfectamente.
+It was incredible.
+It was being at film school.
 
-Eso es lo que todos dicen
-y luego acaban boca arriba.
+With Professor Spielberg
+and Professor Katzenberg.
 
-Muertos.
+This is the first sequence
+we actually animated
 
-Tiene razón. Te ves espantosamente
-mal. ¿Quieres sentarte?
+the whole sequence with Fiona,
+and because of that,
 
-Voy a hacer té.
+even though
+it's a relatively simple sequence,
 
-Bueno, tengo una punzada
-en el cuello.
+no big effects,
+relatively simple lighting environments,
 
-Cuando volteo así, ¡ay! ¿Ven?
+it was probably
+the most difficult sequence to light.
 
-- ¿Tienen hambre? Voy por la cena.
-- Yo traeré leña.
+It was the one where we really had
+to figure out how Fiona's skin worked,
 
-Oigan, ¿a dónde van?
+how these complementary shadows
+that we were doing worked on her,
 
-Dios mío,
-¡no siento los dedos de los pies!
+because, when we went
+to the same level
 
-¡No tengo dedos en los pies!
+that we'd been
+on some of the other sequences,
 
-¡Creo que necesito un abrazo!
+she looked very dead.
+Her skin went too blue or too cold.
 
-Esto está rico.
-Está muy rico.
+She kind of looked dead.
 
-- ¿Qué es?
-- Rata de campo.
+So this was very challenging
+for Philippe and his team of lighters.
 
-Rostizada.
+Yeah. Acting-wise, too.
 
-¿De verdad?
+We actually went back
+and reanimated her.
 
-Pues está deliciosa.
+At one point
+we treated her a bit more balletically,
 
-También son muy ricas guisadas.
+more theatrical, because she was
+pretending to be this princess...
 
-No quiero presumir, pero hago
-un excelente guiso de rata.
+But it ended up looking
+like a bad high-school play,
 
-Creo que mañana en la noche
-estaré cenando un poco diferente.
+and we had to pull her way back into,
+sort of, human proportions.
 
-Quizá me pueda ir a visitar
-a la ciénaga algún día.
+Exactly.
 
-Le cocinaré muchas cosas.
+This one coming up is so much fun,
+when the two of them laugh.
 
-Sopa de sapo, ojo de pescado
-a la tártara, ¡lo que Ud. diga!
+Again, just really fun animation.
 
-Me gustaría.
+The little drag there on Donkey's mouth
+when he says, "Shrek."
 
-¿Princesa?
+His jaw and everything in there
+is fantastic.
 
-¿Sí, Shrek?
+I love this. He falls over.
 
-Estaba pensando.
+The animators looked a lot, actually,
+at dogs for reference for Donkey.
 
-¿Va a--
+They looked at donkeys as well,
+of course,
 
-¿Se va a comer eso?
+but donkeys
+aren't particularly expressive.
 
-Caray, qué romántico es esto.
-Miren el ocaso.
+They're not that expressive.
+Funnily enough...
 
-¿El ocaso? ¡Ay, ay, ay!
+So, they studied dogs a lot.
 
-Digo, ya es tarde.
-Ya es muy tarde.
+This is beautiful in her... That's not very nice.
 
-Un momento.
-Ya veo lo que está pasando aquí.
+She just looks exquisite there.
+I love Shrek in his sooty makeup.
 
-¿Tiene miedo de la oscuridad?
+Yeah, his expression is beautiful.
 
-¡Sí! Eso es. Me aterra.
-Más vale que me meta.
+That's my favorite
+Shrek facial expression.
 
-No se sienta mal. A mí también
-me daba miedo, hasta que--
+That was Fred, wasn't it? Yeah.
 
-Un momento. A mí todavía
-me da miedo la oscuridad
+Yeah. Great animation. This, too.
 
-Buenas noches.
+Every animator
+had to do every character.
 
-Buenas noches.
+It was not like a traditional film,
+where you have a lead
 
-Ya veo lo que está pasando.
+on each character. Right.
 
-¿De qué hablas?
+Each one of our team
+actually had to animate
 
-Soy un animal y tengo instintos.
-Sé que los dos se atraen. Perdón.
+whatever character appeared
+in their sequence. It's funny.
 
-Estás loco. Sólo se la estoy
-llevando a Farquaad.
+Donkey proved to be a little bit easier
+and a little more fun in some cases,
 
-Por favor. Despierta y huele
-las feromonas. Dile lo que sientes.
+'cause of the four legs
+and the expressive eyes,
 
-No hay nada que decir.
-Además, aunque se lo dijera...
+and you could go as far
+as you wanted with him.
 
-bueno, no estoy diciendo
-que la quiero. Porque no.
+Fiona, a little trickier,
 
-Ella es una princesa y yo soy--
+because we all know
+how humans are supposed to move,
 
-¿Un ogro?
+and any time
+she did something too extreme,
 
-Sí, un ogro.
+or lifted an eyebrow too far,
+it would just look funny,
 
-- ¿A dónde vas?
-- A buscar más leña.
+so we just beat up the animators
+whenever they had Fiona scenes.
 
-¿Princesa?
+It was also fun 'cause we had
+a variety of different animators,
 
-¿Princesa Fiona?
+but we had
+a largely male animation staff...
 
-¿Princesa? ¿Dónde está?
+Yeah. And we had to get them all up
 
-¿Princesa?
+and walking around like a woman,
+so that was kind of interesting.
 
-Está feo acá dentro.
-No estoy jugando.
+Some of them, the first time through,
 
-¡No! ¡Auxilio! ¡Shrek!
+she had a real good hip swing going
+at times.
 
-¡No! No pasa nada.
+A little too far. A little too far.
 
-¿Y la princesa?
+I love this transition
+to the next sequence,
 
-¡Burro! Yo soy la princesa.
-Soy yo, en este cuerpo.
+where she's screaming and pounding
+and then bored, hanging there all day.
 
-¡Dios mío!
-¡Te comiste a la princesa!
+It works really well, to be able
 
-¿Me oye?
+to spread the characters around
+to all the animators,
 
-¡Siga respirando!
-¡La voy a sacar de ahí!
+because you get to learn a lot more
+about the characters that way.
 
-¡Shrek! ¡Shrek!
+They don't get stale.
 
-Soy yo.
+They grow as the film grows
+and as the animators take them on.
 
-¿Princesa?
+This has beautiful lighting.
+This very late day,
 
-¿Qué le pasó? Está...
+late in the afternoon sequence
+just looks so great on the characters.
 
-- diferente.
-- Estoy fea, ¿ya?
+It's a funny little thing coming up here,
 
-¿Le cayó mal algo? Eso de comer
-ratas-- Uno es lo que come.
+where Shrek and Donkey
+make fun of Farquaad's height,
 
-¡No! He sido así
-desde que me acuerdo.
+but we never actually have them
+meet Farquaad face to face.
 
-Yo jamás la había visto así.
+They have no idea how tall he was.
+It was left over from earlier versions
 
-Sólo pasa cuando se pone el sol.
+where there was the dinner
+and the deal,
 
-"De noche de una manera
-De día, de otra.
+and Shrek was actually face to face
+with Farquaad. If you look back,
 
-Ésa será la norma."
+you'll see that Farquaad
+was up in his podium the whole time.
 
-"Hasta encontrar el primer beso
-de tu verdadero amor.
+But since you know he's short, it works. It works fine. You don't question it.
 
-Entonces adoptarás,
-del verdadero amor, la forma."
+This actually was a sequence
 
-Qué hermoso.
-No sabía que escribiera poesía.
+where we had probably about
+six or seven height jokes in there.
 
-¡Es un hechizo!
+We had to trim it down, 'cause it just
+seemed like it went on and on.
 
-Cuando era niña,
-una bruja me hechizó.
+This is beautiful on her. I love this.
 
-Todas las noches,
-me convierto en esto.
+And again, we wanted to start planting
+the seeds of suspicion about Fiona.
 
-¡En esta horrenda bestia!
+Why does the sunset bother her?
 
-Estaba en una torre, esperando a
-que me rescatara mi verdadero amor.
+What's she so concerned about?
+But without hitting it over the head.
 
-Por eso debo casarme
-con Lord Farquaad mañana...
+And also that there's something
+unexpected about her,
 
-de día, antes de que me vea...
+like the way she screams at them
+and frightens them.
 
-así.
+I love this facial expression here. Great facial expression.
 
-Bueno, cálmese. No es tan grave.
-No es tan fea.
+And just cut to the cave.
 
-Bueno, no le voy a mentir,
-sí es fea.
+And when we were working
+on the sequence,
 
-Pero sólo se pone así de noche.
-Shrek siempre es feo.
+we kind of treated the sun almost like
+a fourth actor in the scene
 
-Pero, Burro, yo soy una princesa...
+that, compositionally,
+it just had to play enough of a part
 
-¡y las princesas
-no deben verse así!
+that we realized
+that there was some significance
 
-¿Qué tal
-si no se casa con Farquaad?
+to the sun going down
+that was affecting Fiona.
 
-Tengo que casarme.
+Her superhuman strength.
 
-Sólo el beso de mi verdadero amor
-romperá el hechizo.
+Another great expression coming up
+from Shrek here.
 
-Pero usted es una especie de ogra.
+You look up at him and...
+That's very cute.
 
-Y Shrek--
-Bueno, tienen mucho en común.
+See, you just sit here
+and enjoy it with us.
 
-¿Shrek?
+We'll all just go, "Look at that face!" What is Donkey implying?
 
-Princesa, yo--
-Antes que nada, ¿cómo le va? ¿Bien?
+I love that. It is so unexpected.
 
-A mí también. Estoy bien.
+We worked pretty hard
+at the end of that little bit
 
-Vi esta flor y se la traje
-porque es bonita y...
+to make that joke land.
+We tried a lot of different things,
 
-la verdad, no me gusta...
+and in the end it was just,
+"Leave it be, it's funny."
 
-pero quizá a Ud. sí,
-porque Ud. es bonita.
+Another lovely piece of music here.
 
-Pero Ud. me gusta
-de todos modos, y--
+We used a lot of different things
+on the temp,
 
-Esto no va nada bien.
+but John and Harry just wrote
+such a lovely piece of score for here.
 
-Bueno, allá vamos.
+I love Donkey on his back. He's so cute.
 
-En serio. ¿Quién puede amar
-a una bestia tan horrenda y fea?
+The little stretch that he does
+coming up,
 
-Princesa y fealdad no van juntas.
-Por eso no puedo estar con Shrek.
+when they're looking at the sky,
+is so sweet.
 
-Solamente podré vivir
-feliz para siempre...
+No shortage of scatological humor
+in this movie.
 
-hallando a mi verdadero amor.
+No, it was very important. Very key,
 
-¿No te das cuentas, Burro?
-Así tiene que ser.
+very thematic. We're very sophisticated.
 
-Tengo que romper el hechizo.
+It's the stuff that people take for granted
+that still gets me.
 
-Al menos dígale a Shrek la verdad.
+The wrinkles in the clothes
+in Shrek's tunic and in Fiona's dress,
 
-¡No! No le puedes decir.
-Nadie se puede enterar.
+it's stuff that just seems so automatic,
 
-¿De qué sirve saber hablar
-si uno guarda secretos?
+and adds
+to your suspension of disbelief,
 
-Prométeme que no se lo dirás.
+but is actually
+a big pain in the butt to do,
 
-Está bien, yo no se lo diré.
-Pero usted, debería.
+and, you know, our character TDs,
 
-Antes de que esto acabe, voy a
-necesitar terapia. Ya tengo un tic.
+the people who set up the characters
+and set up the clothing,
 
-Le digo. No le digo.
+came up with, pretty much,
+automated systems
 
-Le digo. No le digo.
+that did a lot of the clothing
+deformations, a lot of the wrinkling,
 
-¡Le digo!
+and then we had a clothing group
+to do all the rest of it.
 
-¡Shrek!
+Shrek's, the bottom of his tunic,
+is basically set up separately
 
-¿Shrek? Quiero decirte una--
+from the top of his tunic,
+as is the bottom of Fiona's dress.
 
-¡Shrek!
+So, often during
+the course of production,
 
-- ¿Te sientes bien?
-- Perfecto. Mejor que nunca.
+the characters are half-naked until... That's right.
 
-Tengo que decirte algo.
+Most of this sequence...
+Most of these sequences
 
-No me tiene que decir nada.
-Oí suficiente anoche.
+we saw Fiona in green leotards. And Shrek's plaid butt.
 
-- ¿Oíste lo que dije?
-- Hasta la última palabra.
+You don't want to put that skirt through
+simulation till her animation is finished.
 
-Pensé que ibas a entender.
+I love this sequence
+where you pop around.
 
-Sí entiendo.
+Donkey just appears one side
+and then the other.
 
-Como dijo, ¿quién puede querer
-a una bestia fea, espantosa?
+He sort of developed this magical way
+of moving around that we just buy.
 
-Pensé que no te iba a importar.
+But we didn't do it often.
+We did it selectively.
 
-Pues sí importa.
+And there's Fiona,
+and if you look very carefully,
 
-Justo a tiempo.
+you can see that there's something up
+with Fiona here,
 
-Princesa, le traje una cosita.
+but we just tried to keep her kind of
+in the half-light, half in the shadows,
 
-¿Qué me perdí?
+and really play with the lighting,
 
-¿Quién dijo eso?
-No fue un burro.
+so it's kind of one of those things where,
+if you go back and look at it,
 
-Princesa Fiona.
+you go, "Of course.
+She was a beast at that time."
 
-Como se lo prometí.
-Ahora, démelo.
+"She was an ogress."
 
-Muy bien, ogro.
+But when you watch it
+the first time through,
 
-El título de propiedad
-de tu ciénaga, sin intrusos.
+hopefully... You don't see it.
 
-Tómalo y vete...
+You're not obsessed with that
+and it doesn't distract from the scene.
 
-antes de que cambie de opinión.
+'Cause her eyes are big
+and her eyebrows are thin.
 
-Perdone, princesa, por asustarla,
-pero usted me asustó a mí.
+You'll see her close-up right there.
 
-Jamás había visto
-una belleza tan radiante.
+That's the beast Fiona,
+not our regular Fiona,
 
-Yo soy Lord Farquaad.
+but we put a warm light on her
+to kind of camouflage the green skin,
 
-¿Lord Farquaad?
+but we didn't want
+to cheat her that much
 
-Ay, no, no.
+and make it
+the beautiful princess in there.
 
-Perdóneme a mí, milord,
-estaba a la mitad de un pequeño...
+It had to be the beast to work.
 
-adiós.
+Between Guillaume Aretos,
+one of the art directors,
 
-Qué linda. No desperdicie
-sus buenos modales con un ogro.
+and Susan Hayden,
+one of the sequence supervisors,
 
-No tiene sentimientos.
+that shot went on for a good year. Probably about a year.
 
-No, tiene razón.
-No los tiene.
+This is lovely,
+the two of them against the moon.
 
-Princesa Fiona--
-hermosa, bella, perfecta Fiona...
+One of the things in this movie is,
 
-le pido que se case conmigo.
+we really wanted to have a number
+of quiet moments,
 
-¿Quiere ser la novia perfecta
-para el novio perfecto?
+just moments that really allowed
+the audience to sit back
 
-Lord Farquaad, acepto.
-Nada me hará--
+and sort of think about
+what's been going on,
 
-¡Excelente! Haré los planes.
-¡Nos casamos mañana!
+and it was really nice
+to be able to do that.
 
-¡No!
+In an animated movie,
+where every frame is so deliberate,
 
-Digo, ¿para qué esperar?
+sometimes the temptation
+is to really make it move the story along,
 
-Casémonos hoy.
+move the story along,
+so we really kind of wanted
 
-Antes del ocaso.
+to keep some of those quiet bits. You had to have it to get to know Shrek.
 
-Ah, estamos ansiosos.
+Okay, so now, earlier on
+we were talking about Mama Bear,
 
-Pues, entre antes, mejor.
-¡Hay tanto que hacer!
+and for those of you who didn't
+really click to what that is, well...
 
-Está el banquete,
-el pastel, la banda--
+There she is. There's Mama Bear.
 
-¡Capitán, reúna unos invitados!
+No! She's a bearskin rug!
 
-Que os vaya bien, ogro.
+There's actually a wealth of visual gags
+in here, throughout his bachelor pad.
 
-¡Shrek, estás dejando
-que se te vaya!
+Originally that painting behind him
+was Farquaad on the half-shell,
 
-¿Y qué?
+kind of like Venus on the half-shell.
 
-Hay algo acerca de ella que no
-sabes. Estuvimos hablando anoche--
+I love this sequence, only because
+for a long time I was singing it,
 
-Sí, ya sé que hablaron anoche.
+and it was a very exciting day for me
 
-Son grandes amigos, ¿no?
+when we first showed it
+to Steven Spielberg and I realized,
 
-Y ya que lo son,
-¿por qué no la sigues a su casa?
+"He's gonna hear me sing!" "That's me singing!"
 
-Pero quiero irme contigo.
+But it's not me singing any more.
 
-¡Te dije que no te vas a ir
-a casa conmigo!
+This was actually a joke
+that Aron originally came up with
 
-¡Yo vivo solo! ¡Es mi ciénaga!
-¡Ahí vivo yo y nadie más!
+for the love montage sequence,
 
-¿Entiendes? ¡Nadie!
+but we ended up doing that sequence
+as a musical number.
 
-¡Y menos burros parlanchines,
-inútiles, patéticos y molestos!
+The love montage comes later on
+in the movie, you'll see it,
 
-Pero yo pensé--
+where they blow up the balloons
+and they have a day together.
 
-Pues, ¿sabes qué?
-¡Pensaste mal!
+But then we have the Eels song playing. We had an Eels song playing,
 
-Shrek.
+so it didn't work anymore,
+and for a while it wasn't in the movie,
 
-# I heard there was
-a secret chord #
+and then we decided
+we needed a moment with Fiona alone,
 
-# That David played
-and it pleased the Lord #
+a chance to kind of get to know her...
 
-# But you don't really
-care for music, do ya #
+I'm gonna stop for a minute. Let's enjoy this together.
 
-# It goes like this
-the fourth, the fifth #
+A chance to get to know her and see her
+having a little moment by herself,
 
-# The minor fall
-the major lift #
+being a typical fairytale princess.
 
-# The baffled king
-composing hallelujah #
+But not. But not quite.
 
-# Hallelujah #
+But not. Exactly. But then, she's an opportunist.
 
-# Baby, I've been here before #
+And then we got to layer the joke,
+one thing on another and another,
 
-# I know this room
-I've walked this floor #
+so she blew up the bird,
+and then we thought,
 
-# I used to live alone
-before I knew you #
+"Well, she's doing
+something nice, really,"
 
-# I've seen your flag
-on the marble arch #
+"because she's making breakfast
+for Shrek."
 
-# But love is not
-a victory march #
+It's funny layers because she's upset
+about blowing up the bird,
 
-# It's a cold
-and it's a broken hallelujah #
+and you see the eggs, and you think
 
-# Hallelujah #
+she's gonna be concerned
+for the baby birds,
 
-# Hallelujah #
+but then she makes use of them,
+very productive use of them.
 
-# And all I ever
-learned from love #
+I love that little Donkey line here. Yeah, me, too.
 
-# Is how to shoot at someone #
+When he wakes up. It's so funny. That was a lot bluer at one point.
 
-# Who outdrew you #
+We had to tone that one down.
 
-# And it's not a cry
-you can hear at night #
+There's great acting from Shrek here,
+too, after she walks away.
 
-# It's not somebody
-who's seen the light #
+"We're going to have a big day,
+aren't we?"
 
-# It's a cold
-and it's a broken hallelujah #
+And they mug to each other like,
+"Wow, what is she thinking of?"
 
-# Hallelujah #
+Then Donkey licks his lips.
 
-# Hallelujah #
+Yeah, the thought of Donkey
+eating eggs, for some...
 
-¿Burro?
+It really grosses you out!
 
-¿Qué haces?
+It's a little mad cow disease
+for my liking.
 
-Tú mejor que nadie deberías saber
-qué es. Es un muro.
+There's the face. This is so fun.
+This is actually Cameron belching.
 
-Pues, sí.
+She got an award for this
+on Nickelodeon.
 
-Pero el muro debería rodear
-mi ciénaga, no atravesarla.
+That first belch, I believe, is Sim,
+our editor, being Shrek belching.
 
-Así es. ¿Ves? Rodea tu mitad.
-Ésta es mi mitad.
+But that's Cameron!
 
-Ah, tu mitad.
+And she didn't record that for the scene.
+We actually got that one for free.
 
-Rescatamos a la princesa entre los
-dos, partimos la recompensa en dos.
+Cameron is amazing.
+She's such a wonderful, down-to-earth,
 
-Pásame esa roca,
-la que parece tu cabeza.
+just very real person,
 
-- Vete de aquí.
-- ¡No, tú vete de aquí!
+and she's so perfect for the princess
+in that way.
 
-- ¡Ésta es mi ciénaga!
-- ¡Nuestra ciénaga!
+As you know, she's this person
 
-- ¡Suelta!
-- ¡Tú suelta!
+who lives this glamorous
+Hollywood lifestyle.
 
-- ¡Burro terco!
-- ¡Ogro apestoso!
+She's a supermodel, she's an actress,
 
-¡Perfecto!
+and she's just a really very real person. Totally normal and fun to be around.
 
-¡Todavía no acabo contigo!
+Which is very like our princess.
 
-¡Yo ya acabé contigo!
+She's this very down-to-earth person
+who believes she has to play this role.
 
-¡Tú sólo piensas en "yo, yo, yo"!
+It's Vincent Cassel
+in a cameo appearance as Robert Hood.
 
-¿Sabes qué? ¡Ahora me toca a mí,
-así que cállate y pon atención!
+He's so funny.
 
-Tú eres malo conmigo, me insultas,
-no aprecias nada de lo que hago.
+This actually was, also, another one
+that was a bit bluer.
 
-¡O me tratas a patadas
-o me echas a patadas!
+Our story artist, Conrad, again,
 
-Pues, si te traté tan mal,
-¿por qué volviste?
+found all these horrible pickup lines
+on the Internet,
 
-¡Porque eso hacen los amigos!
-¡Se perdonan!
+where he was approaching Fiona
+and saying,
 
-Sí, tienes razón, Burro.
-Te perdono...
+"Did it hurt?" "What?"
+"When you fell from heaven."
 
-¡por clavarme un cuchillo
-en la espalda!
+It was really horrible. It went too far.
 
-¡Tienes tantas capas, Cebollín,
-que le temes a tus sentimientos!
+It was funny because it was icky,
+and then after a while it was just icky.
 
-¡Lárgate!
+And here we get to do
+a classic musical number.
 
-Me estás tratando como a Fiona.
-Tú le gustabas. Quizá te amaba.
+Just for a bit, though.
+Like the other classical numbers,
 
-¿Amarme?
-¡Dijo que era feo!
+we always stop it
+with something abrupt.
 
-Una criatura espantosa.
-¡Los oí hablando a los dos!
+Boy, the Riverdance thing is so fun.
 
-No estaba hablando de ti.
-Estaba hablando de-- otra persona.
+We just decided to mix together
+in the sequence
 
-¿No estaba hablando de mí?
-¿Entonces de quién estaba hablando?
+as many parodies as we possibly could. That's basically what it is.
 
-Yo no te voy a decir nada.
-No me quieres escuchar, ¿cierto?
+For a while this seemed
+so out of context with the movie, too,
 
-- ¡Burro!
-- ¡No!
+'cause there's such a departure
 
-Bueno, mira-- perdóname.
-¿De acuerdo?
+that suddenly we're in the middle
+of a musical number,
 
-Perdóname.
+but once it was all sort of designed,
 
-Parece que sólo soy
-un ogrote estúpido y feo.
+and they did a beautiful job
+with the location
 
-¿Me puedes perdonar?
+so it kind of blended in,
+it worked really well.
 
-Para eso son los amigos. ¿Cierto?
+And bam! There she comes. Plus, it's a Fiona moment.
 
-Cierto.
+We started out with a very Jackie Chan
+kind of thing here.
 
-- ¿Amigos?
-- Amigos.
+That was initially our inspiration.
 
-Entonces...
+We went back and looked at a lot
+of Jackie Chan movies for her.
 
-¿qué dijo Fiona de mí?
+And then while we were working
+on the movie,
 
-¿Por qué me preguntas a mí?
-Ve y pregúntale a ella.
+which took a fair amount of time,
 
-¡La boda!
-¡No vamos a llegar a tiempo!
+there were a number of other movies
+that came out.
 
-No temas. Querer es poder.
-Y yo sé cómo vas a poder.
+Obviously <i>The Matrix,</i>
 
-¡Burro!
+which is featured very shortly. Coming up right here.
 
-Debe ser mi magnetismo animal.
+That's a Jackie Chan thing. That's a Jackie Chan thing.
 
-- Ven acá, tú.
-- No te pongas sentimental.
+Just before finishing the sequence,
 
-Súbete y...
+<i>Crouching Tiger, Hidden Dragon</i>
+came out,
 
-sujétate bien. Todavía no instalo
-cinturones de seguridad.
+so were able to make
+a little parody of that,
 
-Gente de DuLoc...
+adding the very enhanced
+sound effects...
 
-SILENCIO REVERENCIAL
+Right here? Let's listen together. And this triple-kick coming up here.
 
-estamos aquí reunidos...
+Yeah. Super cool.
 
-el día de hoy
-para presenciar la unión...
+There's a great little bit on Fiona
+where she blushes in a moment.
 
-Disculpe.
+Aron, you thought of that idea,
+didn't you?
 
-¿Podemos pasar directo
-a los "¿Aceptas?"?
+No. That she should blush?
 
-Continúe.
+Actually, all this forest is lovely.
 
-Ve y diviértete. Si te necesitamos,
-te llamo con un silbido.
+We wanted a very, sort of,
+naturalistic forest here,
 
-¡Espera!
-¿No quieres hacer esto bien?
+and we wanted to give it an overall,
+kind of, green palette,
 
-¿De qué hablas?
+and Janet, the lighting supervisor
+on this sequence,
 
-El sacerdote va a decir una frase:
+did just an amazing job of capturing
+that soft light,
 
-"Que hable ahora
-o calle para siempre".
+the shafts of light
+filtering through the trees.
 
-Y tú dices: "¡Yo me opongo!"
+I love the red bushes.
 
-¡No tengo tiempo para eso!
+Henrik did a great painting for this
+sequence that had a beautiful palette
 
-Escúchame.
-Tú amas a esa mujer, ¿no?
+of these greens, grays
+and the red bushes,
 
-¿Quieres abrazarla?
-¿Complacerla?
+and it was just wonderful
+to see it captured in lighting.
 
-Entonces tienes que usar
-un poco de ternura
+An example of Donkey
+popping around again.
 
-Las chicas son románticas.
+Look at the size of his head!
 
-¡Está bien!
-¿Cuándo va a decir esa frase?
+We had this challenge
+all the way through,
 
-Veamos.
+because Fiona's head is so petite,
 
-Y así,
-por el poder que me otorga...
+and Donkey and Shrek
+have such an enormous head,
 
-- ¿Cuándo?
-- Vino todo el pueblo.
+or enormous heads, each. Yeah.
 
-los declaro...
+And at one stage,
+when we have a romantic scene,
 
-Están en el altar.
+and Shrek is actually
+almost gonna kiss Fiona,
 
-¡Caramba, ya lo dijo!
+it was kind of like, "Oh, my God,
 
-¡Ay, por el amor de Dios!
+"he could just bite your head off!" "He's gonna eat her."
 
-¡Yo me opongo!
+I think this scene was also
+originally boarded by Tim Johnson,
 
-¿Shrek?
+or written by Tim Johnson... That's right.
 
-Y ahora, ¿qué quiere?
+One of the directors of <i>Antz.</i>
+Helped us out a lot along the way.
 
-Hola a todos.
-¿Lo están pasado bien?
+I love this chasing of the arrow,
 
-Me encanta DuLoc.
-Muy limpio.
+and then his huge hand
+across her head.
 
-¿Qué haces aquí?
+Love this gag.
 
-Ya bastante grosero es estar vivo
-cuando nadie te quiere.
+Simple things make me laugh.
 
-¡Pero venir sin invitación
-a una boda!
+Again, just the amount of detail
+in the flowers and the leaves,
 
-Fiona, necesito hablar contigo.
+the way the bush moves
+when he grabs them there,
 
-¿Ahora quieres hablar?
-Pues ya es demasiado tarde.
+it's the kind of commitment
+to attention to detail
 
-- ¡No puedes casarte con él!
-- ¿Por qué no?
+that we were just very, very lucky
 
-¡Él sólo se quiere casar contigo
-para poder ser rey!
+that people who had already
+worn themselves out on <i>Antz</i>
 
-¡Qué ultraje!
-No le hagas caso.
+were willing to jump back in.
+When we started this movie,
 
-Él no es tu verdadero amor.
+they asked us
+how difficult did we think it would be,
 
-¿Qué sabes tú de eso?
+and we said,
+"Five to 10 times that of <i>Antz,"</i>
 
-Bueno, yo...
+and everyone fell off their chairs,
+and then got back up
 
-Ay, esto es maravilloso.
+and just kind of launched into it.
 
-¡El ogro se ha enamorado
-de la princesa! ¡Santo Dios!
+And Aron probably had to deal
+with them all trying to quit periodically.
 
-RISA
+I did, but I have to say that they
+made this look almost easy, in a way,
 
-¡Un ogro y una princesa!
+and it wasn't, but their skill
 
-Shrek, ¿es verdad?
+really made it. The contact here,
 
-¿Qué importa?
-¡Es ridículo!
+when Shrek has to pick Donkey up,
 
-Mi amor, estamos a un beso
-de nuestro "felices para siempre".
+you forget how difficult
+this kind of stuff is.
 
-¡Bésame!
+The animators have to deal
+with all the different contact points
 
-"De noche, de una forma
-De día, de otra."
+of picking up Donkey and having him
+flop on Shrek's shoulder,
 
-Quería enseñarte antes.
+and everything you'd just take
+for granted is such a deal.
 
-¡Vaya!
-Eso explica muchas cosas.
+This was actually one of...
 
-¡Qué asco!
+I think this might have been
+the very last sequence
 
-¡Guardias! ¡Guardias!
+that we lit and animated,
 
-¡Llévense eso de mi vista!
-¡Ahora! ¡Llévenselos!
+and it was one that,
+because it worked fine in storyboards,
 
-¡A los dos!
+we left it that way for the longest time,
 
-¡Todos estos "hechizos"
-no cambian nada!
+and we knew that, coming back in,
+it was many different environments,
 
-¡Este matrimonio es legal,
-lo cual me hace rey! ¿Ves?
+something that we could kind of
+break up a little bit more.
 
-¡Suéltenme!
+But it got to benefit from a lot of
+the things we'd developed throughout,
 
-¡No se queden ahí parados!
+like the grass moving
+when they walked through it there,
 
-¡Háganse a un lado! ¡Fiona!
+the insects, the atmosphere.
 
-¡Bestia insolente! ¡Vas a
-arrepentirte de haberme conocido!
+We actually generated
+a new type of tree for this sequence.
 
-¡Voy a hacer que te descuarticen!
-¡Vas a rogarme que te mate!
+The effects artists developed
+what they called a digital greenhouse,
 
-Y en cuanto a ti, esposa mía...
+where they could actually
+grow these trees,
 
-¡volverás a estar encerrada
-por el resto de tus días!
+which is why they're able to get
+so much variety within the trees.
 
-¡Yo soy rey!
+This is one of my favorite jokes.
 
-¡Tendré orden!
-¡Tendré perfección! ¡Tendré--
+Yeah, no actual animals were injured
+in the making of this film,
 
-¡Que nadie se mueva!
-¡Tengo un dragón y lo puedo usar!
+despite appearances.
 
-¡Soy un burro muy tenso!
+But still, the balloons are happy.
 
-Los matrimonios de gente famosa
-nunca duran.
+As they float away, you can see
+they're blinking. They're alive.
 
-Continúa, Shrek.
+I love this gag, when they get
+into a little shoving match.
 
-¿Fiona?
+It's just so cute.
 
-Yo...
+Superhuman strength.
+He shoves her into that bush.
 
-yo te amo.
+See, they blink. It's okay.
 
-¿De veras?
+It's what happens when they get
+to 10,000 feet that I'm worried about,
 
-De veras, de veras.
+and the air pressure goes down, and...
 
-Yo también te amo.
+We're just enjoying it. Bear with us.
 
-´Hasta encontrar el primer beso
-de tu verdadero amor,
+That line used to go a little bit further,
+but we decided to cut it off there.
 
-Y adoptar, del verdadero amor,
-la forma, "
+We had our first test screening
+with a lot of kids and parents in it,
 
-¿Fiona?
+and we were surprised
+at how uncomfortable we felt
 
-¿Te sientes bien?
+with even stuff
+that was pretty innocuous
 
-Pues, sí.
+from our experience,
+but it just made us...
 
-Pero no entiendo.
-Debería ser hermosa.
+It made us cringe a little bit, so we... The criteria we were using at this point
 
-Eres hermosa.
+was not so much,
+"What would our children accept?"
 
-Yo esperaba
-que esto tuviera un final feliz.
+'Cause we don't have children... 'Cause we don't have any.
 
-# I thought love was only true
-in fairy tales #
+But it was,
+"What would our mothers accept?"
 
-# Meant for someone else
-but not for me #
+"What could we actually put in the movie
+without getting into trouble?"
 
-# Love was out to get me #
+This is everyone's favorite,
 
-# That's the way it seemed #
+little broken neck. It's a cute little Eddie moment.
 
-# Disappointment
-haunted all my dreams #
+In fact, mostly this scene is just in here
+for this cute little Eddie moment.
 
-# And then I saw her face #
+"I think I need a hug."
 
-# Now I'm a believer #
+This next sequence
+was kind of challenging,
 
-# And not a trace #
+'cause we had a backlit situation
 
-# Of doubt in my mind #
+where we wanted enough fill light
+and this very subtle kind of blue shadow
 
-- # I'm in love #
-- # Ooh-ahh #
+and very warm background behind,
 
-# I'm a believer
-I couldn't leave her #
+and Mark Wendell and his team
+did just a beautiful job
 
-# If I tried #
+of capturing this very romantic
+rim lighting on the characters,
 
-Dios nos bendiga a cada uno de nosotros.
+in a scene when they're eating rat! Great animation in this sequence.
 
-¡Vamos todos!
-# Then I saw her face #
+Yeah, I love
+some of the facial expressions.
 
-# Now I'm a believer #
-Listen!
+Yeah, some of the most subtle work
+on Shrek,
 
-# Not a trace #
+when he's trying to ask Fiona
+if she's seeing anybody.
 
-# Of doubt in my mind #
+A lot of that's Jason Reisig. Jason.
 
-# I'm in love
-Ooh-ahh #
+Don did some great stuff right here, too.
 
-# I'm a believer
-I couldn't leave her if I tried #
+Yeah. Absolutely.
 
-# Then I saw her face #
+That was one of the first pieces
 
-# Now I'm a believer #
+of more contemporary music
+that we actually ever put in the film,
 
-# Not a trace #
+and we started playing around
+with the idea of having music
 
-# Of doubt in my mind #
-One more time!
+that was a little unexpected
+and was anachronistic
 
-# I'm in love
-I'm a believer #
+in the same way as much of our humor.
 
-¡Vamos!
+This is one of the first pieces
+that we put in, and it just kind of stuck.
 
-# I believe, I believe
-I believe, I believe #
+It stayed in there all the way through,
 
-# I believe, I believe
-I believe, I believe, I believe, hey #
+and we ultimately recorded it
+with this band, Lifehouse.
 
-¡Todos canten conmigo!
-# I #
+This is when you realize
+he could bite her head off.
 
-# Believe #
+Yes.
 
-# I believe #
-People in the back!
+It's very sweet.
 
-- # I believe #
-- # I'm a believer #
+We're gonna go quiet
+for a moment here.
 
-# I believe #
+We're all moved. Enjoy the sweet music.
 
-Y VIVIERON FEOS PARA SIEMPRE
+Poor Shrek.
 
-Oh, eso fue divertido.
-Oh. Oh.
+We fought about that,
+adding that close-up on Shrek.
 
-No puedo respirar.
-No puedo respirar.
+It was something
+that Jeffrey wanted to do,
 
-# I believe in self-assertion #
+and we were convinced it wouldn't work,
+and he was right. It worked. It was great.
 
-# Destiny or
-a slight diversion #
+That joke used to go on further.
+He'd say,
 
-# Now it seems
-I've got my head on straight #
+"No, it's spinach I'm not afraid of."
 
-# I'm a freak
-an apparition #
+It was really funny in the scratch version.
+Somehow, it just lost its humor.
 
-# Seems I've made
-the right decision #
+You know, you forget.
+You see this movie so many times
 
-# To try to turn back now
-it might be too late #
+when you're working on it that you forget
+what's funny and what isn't.
 
-- # I want to stay home today #
-- # Don't wanna go out #
+You have to bring people in
+to remind you,
 
-- # If anyone comes to play #
-- # Gonna get thrown out #
+"No, no, leave it
+alone! It's a great joke!"
 
-- # I wanna stay home today #
-- # Don't want no company #
+I like this little bit here where Shrek
+is just playing with the stick there.
 
-# No way #
+Whenever you can find a little thing
+that a character would just normally do,
 
-# Yeah, yeah, yeah #
+that a person would do
+without thinking about,
 
-# I wanna be a millionaire
-someday #
+it really brings the characters to life,
 
-# But know what it feels like
-to give it away #
+and I love it when the animators
+find something like that,
 
-# Watch me march
-to the beat of my own drum #
+and just giving him this prop
+meant he could kind of use it in a way
 
-# And it's off to the moon
-and then back again #
+that just feels very natural,
 
-# Same old day
-Same situation #
+and just somehow makes him feel
+a bit more human.
 
-# My happiness rears back
-as if to say #
+This is a really big moment for Shrek
+in the movie,
 
-- # I wanna stay home today #
-- # Don't wanna go out #
+and we really did not want
+to hit it over the head,
 
-- # If anyone comes my way #
-- # Gonna get thrown out #
+but we wanted to make sure
+that people got
 
-- # I wanna stay home today #
-- # Don't want no company #
+that he's never made
+any sort of commitment to anyone
 
-# No way #
+in terms of how he felt about anything,
+and it's very hard for him to do.
 
-# Yeah, yeah, yeah #
+That's why that firewood shot
+was so important.
 
-# I wanna stay home
-stay home, stay home #
+There you go. That shot was in the movie,
 
-- # I wanna stay home today #
-- # Don't wanna go out #
+out of the movie. We kept saying,
+"But it's not a movie about firewood!"
 
-- # If anyone comes to play #
-- # Gonna get thrown out #
+Ultimately, the wood... Ultimately, it was.
 
-# I wanna stay home today #
+Ultimately, the wood... Ultimately, it was.
 
-# Don't want no company
-No way #
+The wood representation
+was very strong.
 
-# Yeah, yeah, yeah #
+The only insert shot
 
-# I get such a thrill
-when you look in my eyes #
+in the whole movie that we did! That's true. That's true.
 
-# My heart skips a beat
-Girl, I feel so alive #
+This was an environment
+where we first really pushed the idea
 
-# Please tell me, baby
-if all this is true #
+of kind of letting things fall away,
 
-# 'Cause deep down inside
-all I wanted was you #
+having more darkness,
+kind of a smoky atmosphere,
 
-# Oh-oh-oh
-Makes me wanna dance #
+and it was one of the ones
+we did fairly early on.
 
-# Oh-oh-oh
-It's a new romance #
+We really wanted to establish a mood
 
-# Oh-oh-oh
-I look into your eyes #
+with the design and the treatment
+of the lighting in here.
 
-# Oh-oh-oh
-The best years of our lives #
+Again, it's a limited palette.
 
-# When we first met
-I could hardly believe #
+It's mostly blue,
+with just the orange of the firelight.
 
-# The things that would happen
-and we could achieve #
+I think this was also Paul Wang,
 
-# So let's be together
-for all of our time #
+our sequence supervisor. Right.
 
-# Oh, girl, I'm so thankful
-that you are still mine #
+I love this one, where she is climbing up
+out of the dust of the flour.
 
-# You always consider me
-like an ugly duckling #
+We did everything we could
+to make her look as scary as possible,
 
-# And treat me like a Nostradamus
-was why I had to get my shine on #
+with the ears and taking on,
+sort of, a monster pose.
 
-# I break a little something
-to keep my mind on #
+And a fantastic performance
+from Eddie here.
 
-# 'Cause you had my mind gone
-Eh-eh, eh-eh, eh-eh #
+It's sweet when she touches his cheek,
+reminding him who she is,
 
-# Turn the lights on, Come on, baby
-Let's just rewind the song #
+and you forget
+how difficult things like that are again.
 
-# 'Cause all I want to do is
-make the rest years the best years #
+It's the interaction
+with the fingers and all that fur.
 
-# All night long #
+The music's really beautiful here. Yes, it's very pretty music.
 
-- # Oh-oh-oh, makes me wanna dance #
-- # Makes me wanna dance #
+The design of Fiona as an ogress
+was really important,
 
-- # Oh-oh-oh, it's a new romance #
-- # It's a new romance #
+that there was some commonality,
+even though she looks very different,
 
-- # Oh-oh-oh, I look into your eyes #
-- # Oh, yeah, yeah #
+she's obviously wearing the same dress
+and the same hair and so on,
 
-- # Look into your eyes #
-- # Oh-oh-oh #
+but we really worked hard
 
-- # The best years of our lives #
-- # Yeah, yeah, yeah, yeah #
+to make the eyes and eyebrows
+be very, very similar,
 
-- # Oh-oh-oh, makes me wanna dance #
-- # Whoa-oh-oh, dance, yeah #
+so that when Donkey
+looked into her eyes
 
-# Oh-oh-oh
-It's a new romance #
+or we looked into her eyes,
+we could still see
 
-- # Oh-oh-oh, I look into your eyes #
-- # Look into your eyes, yeah #
+that it was Princess Fiona inside there.
 
-# Oh-oh-oh
-The best years of our lives #
+In the book,
+there's a very different design for her.
 
-# Everything looks bright #
+We actually experimented quite a bit
 
-# Standing in your light #
+before we landed
+on this sweet, cherub face
 
-# Everything feels right #
+that's very closely related to Shrek,
+in that she's an ogre.
 
-# What's left is out of sight #
+We took her hair,
+made it a little more wild
 
-# What's a girl to do I'm telling you
-You're on my mind #
+than when she's in her princess form.
 
-# I wanna be with you #
+Just trying to find
+that sweet earthiness about her,
 
-# 'Cause when you're
-standin'next to me #
+like this is the way she was meant to be.
 
-# It's like wow #
+Even the choice
+of her dress being green
 
-# And all your kisses
-seem to set me free #
+was kind of a subconscious thing
+we wanted to do,
 
-# It's like wow #
+to make you feel
+that she belonged in Shrek's world.
 
-# And when we touch it's such
-a rush I can't get enough #
+So subconscious
+I don't remember us discussing that.
 
-# It's like... It's like
-Ooh-ooh #
+Yeah, we did.
 
-# Hey, what #
+We had a great costume designer.
+It was just like a live-action film.
 
-# It's like wow
-Ooh-ooh, hey #
+You worked with her before, right? Isis Mussenden, yeah.
 
-# Hey, yeah
-It's like wow #
+Isis is fantastic. She did a great job.
 
-# Everything is looking
-right now, right now #
+She sent us samples of fabric
+for the wedding outfits and trim...
 
-- # It's like wow #
-- # And I got this feeling #
+We all got to wear skirts
+and dance around.
 
-# This feeling
-it's just like wow #
+She didn't have to fit any actors,
+so she was especially happy.
 
-# It's just like wow #
+I love this little moment
+with Donkey here.
 
-- You are all I'm thinking of.
-- # Like wow #
+This is a very funny ad-lib
+that Eddie threw in,
 
-# Everything feels right
-Everything feels right #
+and plus it's really where you just get
+this real warmth from his voice.
 
-- # Like wow #
-- # Everything looks bright #
+It's amazing.
 
-- # Like wow #
-- # Everything feels right #
+He's being very cruel, if you think
+about it, but he's saying it so sweetly.
 
-# Baby, baby, baby
-the way I'm feeling you #
+He doesn't mean anything by it.
 
-# Is like wow #
+And then this is some digital tears
+coming up.
 
-# There is something
-that I see #
+Her spell was an interesting problem,
 
-# In the way
-you look at me #
+trying to find the right way to explain
+what was going on with her
 
-# There's a smile
-There's a truth #
+without saying
+that she was a beautiful princess
 
-# In your eyes #
+that had an "ugly curse" on her.
 
-# What an unexpected way #
+We actually wanted to play it
+the other way around,
 
-# On this unexpected day #
+that maybe she was born an ogress
+who had a "pretty curse" on her,
 
-# Could it be #
+or a "pretty spell" on her.
 
-# This is where I belong #
+This, to me,
+is some of Mike's most natural improv,
 
-# It is you I have loved #
+where we really just gave him, again,
+some sort of ideas of where to go
 
-# All along #
+and the kind of things
+that we wanted him to say,
 
-# There's no more mystery #
+and he just ran off a few different things,
+and it meant it was very natural.
 
-# It is finally clear to me #
+It really felt like he was struggling
+to find the right words.
 
-# You're the home
-my heart's searched for #
+He totally got into
+the moment of this, too.
 
-# So long #
+Really. Very much.
 
-# It is you I have loved #
+This is actually a really big turning point
+for Shrek right here,
 
-# All along #
+and this is one of those bits of animation
+where I still, after all this time,
 
-# Whoa, over and over #
+just kind of forget
+that Shrek is an animated character,
 
-# I'm filled with emotion #
+'cause he just seems so lifelike.
 
-# As I look #
+Cheung just did such an amazing job
+with the face here,
 
-# Into your perfect face #
+where you just see Shrek
+is completely crushed overhearing this,
+
+and he's just such a person
+at that moment.
+
+It's great. Poor old Shrek.
+
+It's kind of a story turning point
+for us, too,
+
+if I remember correctly,
+sort of coming up with the idea
+
+of him overhearing this
+and misunderstanding.
+
+It's true.
+We used to have a big sequence
+
+with Fiona and Shrek fighting.
+
+He actually came back
+and heard Donkey screaming
+
+and, just in the shadows,
+saw this creature
+
+and chased her down and attacked her,
+
+and then realized
+that it was an ogress like himself,
+
+and we couldn't quite get it to work,
+
+and we used to have them
+arguing the next day,
+
+and it had an interesting dynamic,
+
+but it didn't really get the story moving
+in quite the way we wanted,
+
+and one of the writers, Joe Stillman,
+came upon this idea
+
+of this misunderstanding,
+where Shrek overhears something
+
+and there's this complex, multiple level
+of misunderstanding
+
+where Shrek thinks she's rejecting him
+and she thinks he's rejecting her,
+
+and it just really is
+one of those classic things,
+
+I think, that happens in relationships,
+
+where it just comes down
+to one little moment.
+
+This is real sweet. Another one
+of those classic tragedies where,
+
+just when she wants to fess up
+and the two of them,
+
+if they could just talk,
+they could figure it all out.
+
+Another beautiful music cue. Yes. Lovely music.
+
+You'll notice in a couple of these shots
+we played with things like lens flares.
+
+It was kind of fun to add artifacts,
+
+things that are accidental or mistakes
+or artifacts of real film
+
+that you actually use in CG to, again,
+cue the audience
+
+into a language they're familiar with.
+People have seen so many movies,
+
+and, 'cause we want them
+to believe in this world,
+
+if we use artifacts that are existent
+in live-action movies,
+
+people just kind of accept it,
+
+and somehow it tricks them into thinking
+that the world is real.
+
+It's fun when Farquaad
+comes riding over the hill
+
+like the classic knight in shining armor.
+It was a real trick getting armor on him,
+
+to make him look,
+as much as we could have,
+
+the natural proportions of a regular guy.
+
+We had to build these arms
+that his own arms popped into,
+
+and fake extendo-legs hanging down
+on either side of the...
+
+Didn't Catherine Yuh board this also? Yeah.
+
+Beautiful. It totally cracked us up
+
+when we saw the extendo-legs
+for the first time.
+
+And the way he's lifted out of the saddle
+by his aides.
+
+So he does kind of trick you there.
+
+This sequence had to be
+about the fastest going through lighting.
+
+Susan did an amazing job
+with the sequence,
+
+because it was towards the end
+and we were running out of time,
+
+and yet it kind of had to be
+this very beautiful morning light
+
+where it's this sensitive,
+romantic fairytale moment,
+
+and I'm just amazed at how quickly
+
+the lighters got through this sequence... Look at that.
+
+And it is so beautiful. Excalibur.
+
+Great bit of acting on Fiona
+coming up here as well.
+
+This is the extendo-legs. There we go. Yeah, this moment coming up,
+
+where she looks to Shrek
+for validation is, again,
+
+one of those moments that you forget
+that she's an animated character.
+
+You see her look to him hopefully,
+
+and then see her tense up
+and her lips tighten. It's just beautiful.
+
+Edip did a great job
+with those close-ups.
+
+I was really happy
+with how we tried to do
+
+as much with few words as possible. Yeah.
+
+I think a lot of that's a real tribute...
+This moment here. Here we go.
+
+It's a real tribute to the animators. Yeah.
+
+There's no dialogue there,
+and yet you know exactly
+
+what's going on in her head.
+
+And then Shrek is devastated. A classic misunderstanding.
+
+I love that moment just before there
+
+when Donkey's trying
+to get out of the shot, too.
+
+He's backing up.
+I was like, "Donkey, get out of the shot!"
+
+"Get out of the shot!"
+
+As if you're on the set,
+silently gesturing to him.
+
+This is fun. She magically flies up.
+
+There was just a little moment
+of independence there.
+
+One of the things we always tried to do
+
+was kind of make Fiona
+a very independent woman,
+
+and even though
+she's offered assistance
+
+up onto the horse there,
+she just jumps up anyway.
+
+I love the lighting in this sequence.
+
+I really like the mood
+and the atmosphere.
+
+And I hate to admit it, but Mike made
+us cry during the recording session.
+
+He did. Mike was great here. Yeah, that was amazing on him.
+
+You could hear the cry in his voice.
+He was really moved.
+
+It's devastating,
+what he does to Donkey.
+
+It's a sequence
+where we have to divide everyone up,
+
+off into their chosen fates,
+and everyone's so upset.
+
+Everyone except Farquaad, of course. I like the blush here.
+
+We have tears welling up
+in the characters' eyes,
+
+which was something that, initially,
+we were going to give up.
+
+We just thought
+it was a layer of difficulty
+
+that we didn't really want to get into,
+
+but again, the effects artists
+came forward and said,
+
+"Look, we think it's something
+we can do."
+
+So we were able to have characters
+kind of welling up with tears, blushing,
+
+those little moments
+that we just notice in real humans.
+
+We tried really hard to make
+the transitions in here very smooth
+
+from one character to the other,
+
+especially relating Shrek's situation
+to Fiona's situation,
+
+realizing that they belong together
+but they were separated.
+
+Again, the use of music here,
+I'm very, very happy with.
+
+His voice, John Cale's voice,
+
+just really conveys so much
+of what Shrek's going through
+
+in its very ironic tone.
+
+I'm moved even now. I can't say a word. Our animation supervisor, Raman,
+
+would never watch the movie
+all the way through,
+
+because he wanted to save it
+till the last minute,
+
+to actually get to see the whole story,
+and he would only agree to watch it
+
+if we didn't watch it in order.
+
+But he would always cry
+in this sequence.
+
+It chokes people up. A lot of people.
+
+It was really effective,
+even in storyboard form.
+
+I know I cried at many times
+during the making of this movie,
+
+but it usually wasn't the content
+
+of the movie! You weren't moved.
+
+It was 'cause I was yelling at you.
+
+This is one of my favorite little gags
+in the movie, too.
+
+Now, we're not disparaging
+short people. Farquaad has issues.
+
+He just can't recognize that,
+of everyone he's kicking out,
+
+he would consider himself part of them,
+but he's got blinders on.
+
+It's his own form of denial.
+
+There's a lot of use of reflection
+in this sequence,
+
+which was kind of a deliberate idea,
+
+that the characters had a moment
+to reflect on themselves,
+
+but again, it was just one of those things
+that in computer graphics is achievable,
+
+and just adds this whole
+extra dimension to the sequence.
+
+There was a whole sequence
+at one time of Donkey...
+
+Confronting. That's right.
+
+Talking to his own reflection,
+
+and his reflection talking him
+into going to Shrek
+
+and yelling at him
+and stand up for himself.
+
+There's some wonderful
+Eddie performance, too,
+
+yelling at the Dragon.
+"Chill with the groveling."
+
+So this is now Donkey
+coming into his own,
+
+So this is now Donkey
+coming into his own,
+
+finally, for the first time,
+standing up for himself
+
+and telling Shrek what he really thinks.
+
+They really...
+You know that they're friends,
+
+and Donkey
+is just standing up for himself,
+
+but it's under the guise of this argument,
+
+but actually he's come back
+to live on Shrek's land with him.
+
+This is fun.
+
+I love this little tussle they have.
+
+It used to be "a big-ass rock."
+We had many, many ass jokes in this,
+
+and I think collectively our crew
+just talked us into it.
+
+One day they counted them up,
+and I think we had something like 12,
+
+so we lost all of the ones
+that didn't just work on the principle
+
+that it's a pun for donkey.
+
+This scene was a really difficult scene.
+
+In writing, we used to actually
+have this sequence
+
+where Shrek was arrested
+and thrown in jail,
+
+and the reason that ultimately Donkey
+actually held something over him
+
+was that he managed
+to steal the key to the cell,
+
+and he was gonna use that
+to get Shrek out of there,
+
+and once we got rid of the idea
+of Shrek being captured,
+
+we didn't really have anything
+that Donkey could hold over Shrek.
+
+And then we realized that instead
+of actually having a physical thing
+
+that he could hold over him,
+he had this information about Fiona.
+
+He knew what Fiona
+really thought of Shrek,
+
+and that was something
+that was of great value to Shrek,
+
+so he could get the apology out of Shrek
+by holding that over him.
+
+He also knows what Fiona really is. Exactly.
+
+You know, internal motivations
+always turned out to be
+
+the best way to go with Shrek,
+from getting him out of his swamp,
+
+not because
+he couldn't live there any more,
+
+it's because he didn't want to
+
+when he was surrounded
+by all those annoying characters.
+
+It's the same case here.
+It just works more from the heart.
+
+I think coming up here
+is another lovely little bit
+
+of sensitive facial animation on Shrek.
+
+We're all just enjoying it together.
+
+There's a moment that Anthony did
+there that was just really lovely.
+
+Again, just those little looks away,
+it just really works, I think, very...
+
+Just that look away, you really know
+that he's kind of thinking.
+
+Bringing the Dragon back
+was so much fun.
+
+It was just one
+of those classic moments
+
+that kids just wish they...
+
+I think all of us just wish we had
+a pet dragon when we were kids,
+
+and we'd just jump on it after school
+and escape.
+
+I did actually have a pet dragon as a kid.
+
+That's right. They occur naturally
+in New Zealand, don't they?
+
+You know,
+you can't import them anymore.
+
+They've banned that.
+They're hard to breed.
+
+There she is.
+
+In this, we actually looked
+at a sequence from <i>True Lies,</i>
+
+when the Hawker Harrier lands,
+
+and we were really going
+for that big action moment,
+
+but with a dragon. The trees and the grass
+
+and everything in this sequence
+are so beautiful...
+
+The leaves blowing around. That Janet supervised.
+
+And this bit of score is just beautiful.
+It's kind of like the main theme
+
+again coming through,
+but this time in a very...
+
+Just lifts your soul. Exalting... Yeah.
+
+I love that shadow of the dragon
+down there on the ground.
+
+Shows you just how high up they are.
+
+Those kind of details were really fun
+to keep track of,
+
+just to give everything
+that extra bit of magic.
+
+Just to give everything
+that extra bit of magic.
+
+I think, actually, the really good thing
+
+about that big uplifting score there
+is that,
+
+if you're still listening to this
+directors'-producers' commentary,
+
+it'll wake you up again.
+It's really useful in that way.
+
+I love the signs. I love that gag.
+
+We had them in the tournament as well.
+It's just a little running gag.
+
+It's just a little reminder
+of how much control Farquaad has
+
+over his environment, all his people.
+
+It's a very totalitarianistic kind of rule
+that he has.
+
+The people are so docile.
+
+They just sort of go
+with whoever's the leader now.
+
+Once Farquaad is eaten,
+they just seem to accept it all,
+
+but we figured if we added those
+little touches showing his dominance,
+
+that that would be enough
+to let you know
+
+that maybe it wasn't such a good idea
+that he was the ruler.
+
+This is another Conrad moment
+coming up here where...
+
+He just pitched this idea to us.
+
+He just went off and developed it,
+and just had us in tears.
+
+At times we were tempted to cut it,
+'cause it's quite a distraction.
+
+I mean, really, it's time they just got on
+with the rescue bit.
+
+There's just two funny moments here
+that are totally worth it for the humor.
+
+It is so classic Donkey,
+
+because he just wants to sing
+and belt it out.
+
+I love this one. This is a great gag,
+
+with Donkey being thrown up
+to check on the situation inside.
+
+The difficult thing sometimes
+in a comedy where you've got a story,
+
+you've got the humor,
+you've got a theme,
+
+and you've gotta kind of
+play the balance between them,
+
+and the temptation
+to get on with the story
+
+at the cost of comedy
+is sometimes very tempting,
+
+and in this case we really thought,
+
+"No, let's just play out the humor.
+We'll get to the big moment soon."
+
+I think it keeps the story
+from becoming too heavy-handed, too.
+
+Great ad-libbing there from Mike.
+
+That ad-lib was actually
+for a different sequence.
+
+At one stage that was actually
+for the tournament,
+
+and it didn't really fit in there any more,
+and when we came to this sequence,
+
+we needed this kind of moment
+when Shrek was walking in,
+
+and there was nothing there
+that really gave it a little punch,
+
+and we sort of remembered
+this ad-lib that Mike had done
+
+and put it in there,
+and it just worked a treat.
+
+It dealt with his discomfort
+at being in this situation, too.
+
+Tricky sequence.
+I remember boarding this one ages ago.
+
+It's always hard to do
+a three-way conversation
+
+to know who's looking where,
+and screen direction,
+
+and this was real tricky.
+
+This sequence is actually
+two-and-a-half sequences shot-wise,
+
+as Jane, the associate producer,
+kept saying,
+
+"It's not one sequence, guys."
+
+Typically, the end of your movie
+
+is something that you work
+over and over and over again,
+
+trying to hit all the right details.
+
+When does she transform?
+When does Shrek come in?
+
+How much of a participant is he
+in her rescue?
+
+We found that,
+even if he just whistled for the dragon,
+
+it turned out that that was enough
+to make him active enough
+
+in turning the situation around.
+
+John was great in this sequence, too.
+John Lithgow is just amazing.
+
+And this next part coming up, again,
+
+with the very organic,
+magical kind of effects,
+
+was very challenging
+for the effects artists.
+
+We needed something that was
+dynamic and yet ethereal and beautiful,
+
+and it was a very difficult kind of effect
+to develop.
+
+I love that faint.
+
+A generic.
+We call all our crowd people "generics."
+
+If you look in the crowd,
+you can find people that you know.
+
+It's a little challenge
+we had all the way through.
+
+One of the Merry Men
+was definitely one of our...
+
+Story guys. Effects supervisors. No, Monty.
+
+Monty. Yeah, he's doing the Macarena
+
+at the end. Yes.
+
+And our Friar Tuck is Vern Kramerson. I love that piece with Farquaad there.
+
+It's a beautiful piece of animation.
+Really nice lighting.
+
+This was a real trick. All of these guards
+grabbing hold of Shrek,
+
+all the contact and pulling
+and pushing back and forth.
+
+The other challenge we had
+in this sequence
+
+was the continual changing of light,
+as we start just before sunset,
+
+and by the end of the sequence
+the sun has set,
+
+and we wanted to get
+this gradual shift of light
+
+throughout the sequence,
+which made it quite challenging.
+
+Beautiful windows.
+
+Again, the graphic work
+from our art department,
+
+Julia, especially.
+
+Everyone's favorite Donkey line.
+
+And that burp
+was actually our music editor.
+
+Not treated in any way.
+He actually burps like that.
+
+Very sweet work
+on the two of these characters here.
+
+We're just enjoying it.
+Give us a moment.
+
+We actually...
+When we're recording these sequences,
+
+we record with the actors separately,
+
+and when we were recording this
+with Mike,
+
+we actually asked him
+to bring in his wife, Robin,
+
+and he actually recorded this
+with her reading against him,
+
+and I think it just gave him
+a very genuine kind of sense.
+
+Again, these are very difficult effects.
+
+It's amazing that it all comes together
+and it just looks beautiful,
+
+when you consider the hours
+and sweat and blood
+
+that actually went into
+every little smoke particle here.
+
+Made no less difficult
+by your incredible perfectionism
+
+during the course of production there.
+But it all worked out well.
+
+Fabulous details,
+blowing out the windows.
+
+The gag of when the dragon
+actually pops out the window
+
+we tried in a few different places.
+It's so fun.
+
+There are times you find even,
+as dramatic as a moment is,
+
+you still need to have
+a little bit of comic relief,
+
+and the audience is almost thankful
+because they're enjoying the moment,
+
+as sentimental as it is,
+but they don't mind...
+
+It's a treacle cutter. It's a treacle cutter,
+
+and it's also
+a little bit of a stress release.
+
+I always felt like we should have left that
+a little bit longer
+
+before she spoke then. Yeah.
+
+It still bugs me to this day.
+She just talks just a moment too soon.
+
+Yeah, like she was unconscious
+while she was on the ground.
+
+I know.
+
+I know.
+
+Good fun here at the end.
+
+Yeah, Smash Mouth did a great job
+of redoing this song.
+
+The song we put in very early on,
+
+'cause just thematically,
+it was just so perfect
+
+for what was going on with Shrek,
+
+and then Smash Mouth
+were nice enough to redo it for us.
+
+Pinocchio's dance.
+
+Pinocchio's dance! That's our editor, Sim.
+
+Sim did this dance in his chair
+and inspired everyone.
+
+We all just fell over laughing.
+
+Another little note,
+the movie ended just about here,
+
+when they rode off into the sunset
+and the book closed,
+
+and it was very sweet
+and it was a happy ending,
+
+but it wasn't a big laugh,
+
+so cutting back to Donkey
+starting to do the <i>I'm a Believer</i>
+
+as if it was after the wedding,
+at the reception, in karaoke style,
+
+really just brought the movie,
+you know, out the door laughing.
+
+It was amazing
+having both Jeffrey Katzenberg
+
+and Steven Spielberg
+to give us advice throughout this,
+
+and Jeffrey was definitely a big advocate
+of going out with a big laugh.
+
+And I have to admit,
+I think we all questioned having to do it,
+
+and it worked incredibly well.
+It was a pretty brilliant stroke.
+
+And to be able to see
+the fairytale characters again, too,
+
+'cause we'd seen them all
+in the beginning.
+
+We had toyed with using them more.
+Early on we thought maybe
+
+they helped out with the rescue
+of Fiona, that sort of thing,
+
+but here we got a sense of them
+all playing together and dancing.
+
+Right when we were about
+to finish the movie,
+
+it's amazing that we decided to do this,
+and Aron figured out that we could do it,
+
+and they were okay with spending
+the money to do it, which was fantastic.
+
+Once again, a record time, though,
+that we put the sequence together.
+
+And Eddie, we had to go and ask him,
+
+"Can you please
+sing badly for us again?"
+
+He sounds good, though.
+
+He does,
+but he actually has an amazing voice,
+
+and to get him to sing like Donkey,
+I think, was kind of challenging for him.
+
+And then we go to the storybook ending.
+
+"And they lived ugly ever after."
+
+So if you're still listening,
+
+you've made it all the way through
+to the end of the movie,
+
+and believe me,
+it was actually a lot more fun making it
+
+than it was listening to us
+talking about making it.
+
+Next, here we have a very long list
+of all the people
+
+we have to be very, very grateful to
+for really making this movie...
+
+Without any one of them,
+none of this would have been possible.
+
+They also did make it fun. Yeah.
+
+It was an incredibly fun and heartfelt... It was a lot of fun.
+
+Wonderful, warm group of people.
+
+I think everyone realizes
+what a special experience it was.
+
+In fact, I'm sure most of the people
+listening to this commentary
+
+will probably be the people
+that worked on the movie,
+
+so as you see your name come up,
+
+please put a "thank you"
+before your name.
+
+And "applause" afterwards.
+
+'Cause we really do
+want to thank everyone
+
+for just making this experience
+so wonderful for us,
+
+and just producing a movie
+that I think we're very proud of.
 
