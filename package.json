@@ -6,8 +6,8 @@
   "scripts": {
     "start": "webpack serve",
     "watch": "webpack --watch",
-    "build": "webpack"
-    
+    "build-prod": "NODE_ENV=production webpack",
+    "build-dev": "webpack"
   },
   "repository": {
     "type": "git",
@@ -21,8 +21,14 @@
   },
   "homepage": "https://github.com/mistertandon/javascript-0010-webpack#readme",
   "devDependencies": {
+    "@babel/core": "^7.20.2",
+    "@babel/preset-env": "^7.20.2",
+    "babel-loader": "^9.1.0",
     "webpack": "^5.74.0",
     "webpack-cli": "^4.10.0",
     "webpack-dev-server": "^4.11.1"
+  },
+  "dependencies": {
+    "win-node-env": "^0.6.1"
   }
 }
