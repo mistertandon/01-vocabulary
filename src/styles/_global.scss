@@ -1,0 +1,10 @@
+@use "variables";
+
+body {
+  background-color: variables.$bg;
+  color: var(--text);
+}
+
+main{
+    display: flex;
+}

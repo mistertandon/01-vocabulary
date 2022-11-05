@@ -1,3 +1,5 @@
+import "./styles/index.scss";
+
 const elevenShieldRecipe = {
   leatherStrings: 1,
   ironIngot: 2,
