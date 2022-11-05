@@ -1,4 +1,7 @@
+import { render } from "react-dom";
 import "./styles/index.scss";
+
+render(<h1>Hello from React</h1>, document.getElementById("root"));
 
 const elevenShieldRecipe = {
   leatherStrings: 1,
