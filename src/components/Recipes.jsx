@@ -17,7 +17,7 @@ console.log("elevenGauntletsRecipe: ", elevenGauntletsRecipe);
 const Recipes = () => {
   const [recipe, setRecipe] = useState(elevenShieldRecipe);
   return (
-    <div>
+    <div className="recipe--cntr">
       <div>
         <button onClick={() => setRecipe(elevenShieldRecipe)}>
           Eleven Shield

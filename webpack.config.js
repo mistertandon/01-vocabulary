@@ -13,6 +13,9 @@ module.exports = {
   mode,
   target,
   devtool: "source-map",
+  output: {
+    assetModuleFilename: "images/[hash][ext][query]",
+  },
   devServer: {
     hot: true,
     static: {
@@ -24,7 +27,10 @@ module.exports = {
       {
         test: /\.(s[ac]|c)ss$/i,
         use: [
-          MiniCssExtractPlugin.loader,
+          {
+            loader: MiniCssExtractPlugin.loader,
+            options: { publicPath: "" },
+          },
           "css-loader",
           "postcss-loader",
           "sass-loader",
@@ -37,10 +43,21 @@ module.exports = {
           loader: "babel-loader",
         },
       },
+      {
+        test: /\.(jpe?g|svg|gif|png)$/i,
+        type: "asset",
+        // type: "asset/resource",
+        // type: "asset/inline",
+        parser: {
+          dataUrlCondition: {
+            maxSize: 30 * 1024,
+          },
+        },
+      },
     ],
   },
   plugins: [new MiniCssExtractPlugin()],
   resolve: {
-    extensions: [".js",".jsx"]
-  }
+    extensions: [".js", ".jsx"],
+  },
 };

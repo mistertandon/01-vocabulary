@@ -1,1 +1,6 @@
 @use "global";
+@use "hero";
+
+.recipe--cntr{
+    display: flex;
+}
